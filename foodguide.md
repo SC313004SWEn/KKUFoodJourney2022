@@ -37,7 +37,7 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 On budget? No problem. There are plenty of delicious and affordable foods around KKU.
 #### 1. ศุนย์อาหารและบริการ 2 มข. (โรงชาย)
 > ถูกและดี มีอยู่จริง!! มีอาหารให้เลือกหลากหลาย ทั้งข้าวราดแกง อาหารตามสั่ง ก๋วยเตี๋่ยว ผลไม้ และขนมหวาน ตั้งแต่ราคาหลักสิบถึงหลักร้อย
-พิกัด: เยื้องสนามกีฬากลาง มข.
+> พิกัด: เยื้องสนามกีฬากลาง มข.
 > เวลาเปิด-ปิด: ตลอดเวลา
 
 
