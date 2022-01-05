@@ -43,6 +43,16 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 > เวลาเปิด-ปิด : 7:00-16:00 น.
 > พิกัด: ตลาด62blocks หลังสนามหญ้าเทียม
 
+#### 3. Juicer Coffee
+
+<img src="media/JuicerCoffee.jpg" width="500"/>
+
+*อ้างอิงข้อมูลและภาพจาก:* [รีวิวขอนแก่น ](https://www.facebook.com/640465002729303/posts/4019355071506929)
+
+> คาเฟ่เล็กๆที่ลึกลับ บรรยากาศอบอุ่น มุมถ่ายรูปเยอะ ใครที่รักธรรมชาติพลาดไม่ได้เลย ที่สำคัญเครื่องดื่มราคาย่อมเยาเข้าถึงง่าย :star::star:
+> เวลาเปิด-ปิด : 08.00-18.00 น.
+> พิกัด: [หลังมข.ใกล้หอพักเรือนไทยไม้งาม](https://goo.gl/maps/xTCXZpQRPcw5n2aD6)
+
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
 On budget? No problem. There are plenty of delicious and affordable foods around KKU.
 #### 1. ศุนย์อาหารและบริการ 2 มข. (โรงชาย)
