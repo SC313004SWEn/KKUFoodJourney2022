@@ -7,8 +7,8 @@ Visiting KKU for the first time? This guide will give you mouthwatering choices 
 * [Must Try](#musttry)
 * [Cafe](#cafe)
 * [Street Foods](#street)
-* [Fine Dining](#finedin)
 * [Authentic E-SAN Foods](#esan)
+* [Fine Dining and Restaurants](#finedin)
 * [Public Events](#event)
 * [Grab and Go](#grab)
 
