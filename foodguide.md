@@ -33,6 +33,16 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 > เวลาเปิด-ปิด : 8:00-18:00 น.
 > พิกัด: อยู่หลังสนามกีฬา 50 ปี ใกล้คณะเทคโนโลยี และสะพานขาว
 
+#### 2. 𝐍𝐚𝐩'𝐬 𝐂𝐨𝐟𝐟𝐞𝐞 𝐱 𝐊𝐡𝐨𝐧 𝐊𝐚𝐞𝐧
+
+<img src="media/NapsCafe.jpg" width="500"/>
+
+*อ้างอิงข้อมูลและภาพจาก:* [Pai ka sis :ไปค่ะซิส ツ](https://www.facebook.com/permalink.php?story_fbid=405285714614604&id=108801770929668)
+
+> คาเฟ่ขอนแก่น ฟิลดี เหมือนอยู่ริมทะเล เครื่องดื่มดีงามครัวซองค์สดใหม่ 
+> เวลาเปิด-ปิด : 7:00-16:00 น.
+> พิกัด: ตลาด62blocks หลังสนามหญ้าเทียม
+
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
 On budget? No problem. There are plenty of delicious and affordable foods around KKU.
 #### 1. ศุนย์อาหารและบริการ 2 มข. (โรงชาย)
