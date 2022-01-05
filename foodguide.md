@@ -40,6 +40,12 @@ On budget? No problem. There are plenty of delicious and affordable foods around
 > พิกัด: เยื้องสนามกีฬากลาง มข.
 > เวลาเปิด-ปิด: ตลอดเวลา
 
+#### 2. ข้าวมันไก่พี่ยัด ศูนย์อาหารยูเซนเตอร์
+<img src="media/yadChickenRice.jpg" width="500"/>
+รูปภาพจาก https://www.wongnai.com/restaurants/271528hN271528hN-ข้าวมันไก่-มข
+> หิวๆต้องมา ถูก ให้เยอะมากกกกกกกกก กไก่ ล้านตัว ในราคาปกติ 40บาทเท่านั้น 
+> พิกัด: U-center 
+
 
 ## <a name="esan"></a>Authentic E-SAN Foods :cow: :evergreen_tree: :evergreen_tree: :horse:
 Wanna eat like the locals? Try these.
