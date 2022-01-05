@@ -52,6 +52,17 @@ Love to impress you Instragram followers? Here are the places where you can take
 > ไหว้เจ้าพ่อมอดินแดงเสร็จไปรับประทานอาหารในบรรยากาศหรูหราต่อ ให้บริการทั้งร้านอาหาร ที่พัก และคาเฟ่ มีบริการอาหารที่ทำจากผลผลิตภายในรั่วมหาวิทยาลัยขอนแก่น
 > พิกัด: ตรงข้ามเจ้าพ่อมอดินแดง ติดคณะสัตวแพทยศาสตร์
 
+#### 2. สเต็กบ้านเต้ง สาขา ม.ขอนแก่น
+
+<img src="media/steakbaantengkk.jpg" width="500"/>
+
+*อ้างอิงข้อมูลและภาพจาก:* [สเต็กบ้านเต้ง ม.ขอนแก่น & Mr.Teng Steak](https://www.facebook.com/Steakbaantengkk)
+
+> ต้นตำรับสเต็กบ้านเต้ง รสชาติที่ทุกคนคุ้นเคย 10 ปี
+ร้านเปิดทุกวัน ตั้งแต่ 10.00-22.00น.
+โทร: 083-4569270
+พิกัด: ที่ตั้ง ริมบึงหนองแวงตราชู ฝั่งกังสดาล อ.เมือง จ.ขอนแก่น
+
 
 ## <a name="event"></a>Public Events :dancer: :dancers:
 Looking for souvenirs or buying the essestials? There are many places for you to go.  KKU is full of public events with food stalls. Some are free. Some are not. Here is the list.
