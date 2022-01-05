@@ -67,6 +67,15 @@ On budget? No problem. There are plenty of delicious and affordable foods around
 > หิวๆต้องมา ถูก ให้เยอะมากกกกกกกกก กไก่ ล้านตัว ในราคาปกติ 40บาทเท่านั้น 
 > พิกัด: U-center 
 
+#### 3. ก๋วยเตี๋ยว & กะเพรา By คุณเสริม
+
+<img src="media/kapow_kunserm.jpg" width="500"></img>
+
+*อ้างอิงข้อมูลและภาพจาก:* [Facebook Fan Page](https://www.facebook.com/เตี๋ยวเนื้อตุ๋นหมูตุ๋นกะเพราน่องลายbyคุณเสริมสาขาโรงอาหารชาย-มข-639855569773571)
+
+> หนึ่งในร้านขายกะเพราที่เรียกได้ว่าอร่อยมากๆ ภายใน มข. นอกจากนี้ยังมีเมนูประเภทก๋วยเตี๋ยวให้ลิ้มลอง
+> เวลาเปิด 07.00-16.00 น. (ถ้าวัตถุดิบหมดก็จะปิดร้านทันที)
+> พิกัด ศูนย์อาหารและบริการ 2 (โรงชายใหม่) ตรงข้าม สนามกีฬา 50 ปี
 
 ## <a name="esan"></a>Authentic E-SAN Foods :cow: :evergreen_tree: :evergreen_tree: :horse:
 Wanna eat like the locals? Try these.
