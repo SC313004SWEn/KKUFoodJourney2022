@@ -130,4 +130,12 @@ Looking for souvenirs or buying the essestials? There are many places for you to
 ## <a name="grab"></a> Grab and Go :running: :muscle:
 In a rush? Let's grab a bite to eat.
 
+#### 1. ผัดไทยไร้เส้น-ตลาดหอแปดหลัง
 
+<img src="media/ผัดไทยไร้เส้น-ตลาดหอแปดหลัง.PNG" width="500"></img>
+
+*อ้างอิงข้อมูลและภาพจาก:* [food.grab.com/th](https://food.grab.com/th/th/restaurant/ผัดไทยไร้เส้น-ตลาดหอแปดหลัง-delivery/3-CZACAYBJR8MAGN)
+
+> แนะนำกะเพราไก่อร่อยมาก
+> เวลาเปิด 07:30-20:30 น.
+> พิกัด ตลาดหอแปดหลัง
