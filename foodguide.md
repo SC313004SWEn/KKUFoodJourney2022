@@ -70,7 +70,7 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 
 *อ้างอิงข้อมูลและภาพจาก:* [FB Fan Page]https://web.facebook.com/%E0%B8%8C%E0%B8%B2%E0%B8%93%E0%B9%84%E0%B8%A1%E0%B9%89-306572890176452/
 
-> ร้านอาหารกึ่ง ภายในรั้ว มข.
+> ร้านอาหารกึ่งคาเฟ่ ภายในรั้ว มข.
 > เวลาเปิด-ปิด : 8:00-21:00 น.
 > > พิกัด: ฝั่งกังสดาล มหาวิทยาลัยขอนแก่น ใกล้กันกับร้าน Sri Brown Cafe
 
