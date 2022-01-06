@@ -120,7 +120,16 @@ Love to impress you Instragram followers? Here are the places where you can take
 โทร: 083-4569270
 พิกัด: ที่ตั้ง ริมบึงหนองแวงตราชู ฝั่งกังสดาล อ.เมือง จ.ขอนแก่น
 
+#### 3. T-Bone Steak 
 
+<img src="media/T-BoneSteak.jpg" width="500"/>
+
+*อ้างอิงข้อมูลและภาพจาก:* [T-Bone Steak](https://www.facebook.com/tbonekk/photos/a.3794468787251502/3873879389310441/)
+
+> ไม่พูดมาก เพราะมันอร่อยมากกกกกกกกก
+ร้านเปิดทุกวัน ตั้งแต่ 16.00-22.00น.
+โทร: 094 542 8366
+พิกัด: ที่ตั้ง 204/150 หมู่14 เทศบาลนครขอนแก่น ฝั่งกังสดาล อ.เมือง จ.ขอนแก่น 40000
 
 
 ## <a name="event"></a>Public Events :dancer: :dancers:
