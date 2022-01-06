@@ -63,6 +63,17 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 > เวลาเปิด-ปิด : 11.00-23.00 น.
 > พิกัด: [อยู่ติดร้านปลาวาฬใจดีสาขากังสดาล](https://goo.gl/maps/A7D7qYrngy9LcuwE7)
 
+
+#### 5. ฌานไม้ 
+
+<img src="media/ฌานไม้.jpg" width="500"/>
+
+*อ้างอิงข้อมูลและภาพจาก:* [FB Fan Page]https://web.facebook.com/%E0%B8%8C%E0%B8%B2%E0%B8%93%E0%B9%84%E0%B8%A1%E0%B9%89-306572890176452/
+
+> ร้านอาหารกึ่ง ภายในรั้ว มข.
+> เวลาเปิด-ปิด : 8:00-21:00 น.
+> > พิกัด: ฝั่งกังสดาล มหาวิทยาลัยขอนแก่น ใกล้กันกับร้าน Sri Brown Cafe
+
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
 On budget? No problem. There are plenty of delicious and affordable foods around KKU.
 #### 1. ศุนย์อาหารและบริการ 2 มข. (โรงชาย)
@@ -110,17 +121,7 @@ Love to impress you Instragram followers? Here are the places where you can take
 พิกัด: ที่ตั้ง ริมบึงหนองแวงตราชู ฝั่งกังสดาล อ.เมือง จ.ขอนแก่น
 
 
-## <a name="cafe"></a>Cafe :coffee: :cake: :tea:
 
-####  ฌานไม้ คาเฟ่
-
-<img src="media/ฌานไม้.jpg" width="500"/>
-
-*อ้างอิงข้อมูลและภาพจาก:* [FB Fan Page]https://web.facebook.com/%E0%B8%8C%E0%B8%B2%E0%B8%93%E0%B9%84%E0%B8%A1%E0%B9%89-306572890176452/
-
-> ร้านอาหารกึ่ง ภายในรั้ว มข.
-> เวลาเปิด-ปิด : 8:00-21:00 น.
-> พิกัด: ฝั่งกังสดาล มหาวิทยาลัยขอนแก่น ใกล้กันกับร้าน Sri Brown Cafe
 
 ## <a name="event"></a>Public Events :dancer: :dancers:
 Looking for souvenirs or buying the essestials? There are many places for you to go.  KKU is full of public events with food stalls. Some are free. Some are not. Here is the list.
