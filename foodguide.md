@@ -81,7 +81,7 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 *อ้างอิงข้อมูลและภาพจาก:* [FB Fan Page](https://www.facebook.com/inwhitecafekk)
 
 > ร้านคาเฟ่สุดชิลพร้อมเครื่องดื่มเเสนอร่อย~
-> เวลาเปิด-ปิด : 16:00-23:00 น.
+> เวลาเปิด-ปิด : 11:00-22:00 น.
 > > พิกัด: ฝั่งกังสดาล มหาวิทยาลัยขอนแก่น ข้างร้าน โอปอ.บุฟเฟต์ 
 
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
