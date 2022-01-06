@@ -74,6 +74,16 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 > เวลาเปิด-ปิด : 8:00-21:00 น.
 > > พิกัด: ฝั่งกังสดาล มหาวิทยาลัยขอนแก่น ใกล้กันกับร้าน Sri Brown Cafe
 
+#### 6. InWhite Café
+
+<img src="media/InWhite.jpg" width="500"/>
+
+*อ้างอิงข้อมูลและภาพจาก:* [FB Fan Page](https://www.facebook.com/inwhitecafekk)
+
+> ร้านคาเฟ่สุดชิลพร้อมเครื่องดื่มเเสนอร่อย~
+> เวลาเปิด-ปิด : 16:00-23:00 น.
+> > พิกัด: ฝั่งกังสดาล มหาวิทยาลัยขอนแก่น ข้างร้าน โอปอ.บุฟเฟต์ 
+
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
 On budget? No problem. There are plenty of delicious and affordable foods around KKU.
 #### 1. ศุนย์อาหารและบริการ 2 มข. (โรงชาย)
