@@ -110,6 +110,18 @@ Love to impress you Instragram followers? Here are the places where you can take
 พิกัด: ที่ตั้ง ริมบึงหนองแวงตราชู ฝั่งกังสดาล อ.เมือง จ.ขอนแก่น
 
 
+## <a name="cafe"></a>Cafe :coffee: :cake: :tea:
+
+####  ฌานไม้ คาเฟ่
+
+<img src="media/ฌานไม้.jpg" width="500"/>
+
+*อ้างอิงข้อมูลและภาพจาก:* [FB Fan Page]https://web.facebook.com/%E0%B8%8C%E0%B8%B2%E0%B8%93%E0%B9%84%E0%B8%A1%E0%B9%89-306572890176452/
+
+> ร้านอาหารกึ่ง ภายในรั้ว มข.
+> เวลาเปิด-ปิด : 8:00-21:00 น.
+> พิกัด: ฝั่งกังสดาล มหาวิทยาลัยขอนแก่น ใกล้กันกับร้าน Sri Brown Cafe
+
 ## <a name="event"></a>Public Events :dancer: :dancers:
 Looking for souvenirs or buying the essestials? There are many places for you to go.  KKU is full of public events with food stalls. Some are free. Some are not. Here is the list.
 
