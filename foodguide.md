@@ -111,6 +111,12 @@ On budget? No problem. There are plenty of delicious and affordable foods around
 ## <a name="esan"></a>Authentic E-SAN Foods :cow: :evergreen_tree: :evergreen_tree: :horse:
 Wanna eat like the locals? Try these.
 
+#### 1. มิตรภาพลาบก้อย
+<img src="media/mitrapap.jpg" width="500"/>
+รูปภาพจาก https://www.wongnai.com/photos/06f2d745f2164661b256421a8a42a565
+
+> เวลาเปิด-ปิด : 16:00 - 11:00 น. 
+> พิกัด: ถนนมิตรภาพ
 
 ## <a name="finedin"></a>Fine Dining and Restaurants  :camera: :sunflower:
 Love to impress you Instragram followers? Here are the places where you can take stunning pictures, nice foods, and excellent services.
