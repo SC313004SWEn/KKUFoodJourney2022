@@ -84,6 +84,17 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 > เวลาเปิด-ปิด : 11:00-22:00 น.
 > > พิกัด: ฝั่งกังสดาล มหาวิทยาลัยขอนแก่น ข้างร้าน โอปอ.บุฟเฟต์ 
 
+#### 7. Gravity Coffee Space
+
+<img src="media/GravityCoffeeSpace.jpg" width="500"/>
+
+*อ้างอิงข้อมูลและภาพจาก:* [Wongnai](https://www.wongnai.com/restaurants/418245rv-gravity-coffee-space)
+
+> ร้านกาแฟ บรรยากาศดี เหมาะแก่การนั่งชิว
+> เปิดทุกวัน 08.00-17.00 น.
+> > พิกัด:ใกล้ สมาคมศิษย์เก่ามหาวิทยาลัยขอนแก่น
+
+
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
 On budget? No problem. There are plenty of delicious and affordable foods around KKU.
 #### 1. ศุนย์อาหารและบริการ 2 มข. (โรงชาย)
