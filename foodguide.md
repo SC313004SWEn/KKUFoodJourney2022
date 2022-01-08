@@ -119,6 +119,15 @@ On budget? No problem. There are plenty of delicious and affordable foods around
 > เวลาเปิด 07.00-16.00 น. (ถ้าวัตถุดิบหมดก็จะปิดร้านทันที)
 > พิกัด ศูนย์อาหารและบริการ 2 (โรงชายใหม่) ตรงข้าม สนามกีฬา 50 ปี
 
+#### 4. โบโบ้เครป&นมสด หลังมอ
+<img src="media/เครปโบโบ้.jpg" width="500"/>
+
+*อ้างอิงรูปภาพจาก:* [เครปโบโบ้ สาขาแฟรี่](https://www.facebook.com/%E0%B9%80%E0%B8%84%E0%B8%A3%E0%B8%9B%E0%B9%82%E0%B8%9A%E0%B9%82%E0%B8%9A%E0%B9%89-%E0%B8%AA%E0%B8%B2%E0%B8%82%E0%B8%B2%E0%B9%81%E0%B8%9F%E0%B8%A3%E0%B8%B5%E0%B9%88-107714670918042/)
+
+  * เป็นร้านเครปที่ให้ไส้เยอะมาก และอร่อยมาก มีไส้และแป้งให้เลือกหลากหลายและราคาถูก
+  * เวลาเปิด-ปิด : 18:00 - 23:30 น.
+  * พิกัด : หลังมอ เยื้องกับสถานีตำรวจภูธรย่อย มข
+
 ## <a name="esan"></a>Authentic E-SAN Foods :cow: :evergreen_tree: :evergreen_tree: :horse:
 Wanna eat like the locals? Try these.
 
