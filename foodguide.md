@@ -20,6 +20,14 @@ Something you can not miss when visiting KKU
 > เวลาเปิด-ปิด: 9:00-18:00 น.
 > พิกัด: ศูนย์บริการอาหาร 4 ใต้ที่จอดรถคณะวิทยาการจัดการ
 
+#### 2. Lean Station
+
+<img src="media/LeanStation.JPG" width="500"/>
+
+  * ร้านขายอาหารรักสุขภาพ อาหารและเครื่องดื่มอร่อย
+  * เมนูแนะนำ ลาบแซลมอนซาซิมิ
+  * เวลาเปิด-ปิด : 11:00 - 19:00 น.
+  * พิกัด : หอพักอินเตอร์ มหาวิทยาลัยขอนแก่น
 
 ## <a name="cafe"></a>Cafe :coffee: :cake: :tea:
 Here are the best places where you can enjoy your a cup of coffee and delicious desserts.
