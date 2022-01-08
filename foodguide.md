@@ -188,7 +188,7 @@ In a rush? Let's grab a bite to eat.
 </ul>
 
 #### 2. ไก่จ๋า - ตลาดมอดินแดง
-<img src="media/Grabfood_KaiJa.PNG" width="500"/>
+<img src="media/Grabfood_KaiJa.png" width="500"/>
 
 *อ้างอิงข้อมูลและรูปภาพจาก:* [ไก่จ๋า - ตลาดมอดินแดง](https://food.grab.com/th/th/restaurant/%E0%B9%84%E0%B8%81%E0%B9%88%E0%B8%88%E0%B9%8B%E0%B8%B2-%E0%B8%95%E0%B8%A5%E0%B8%B2%E0%B8%94%E0%B8%A1%E0%B8%AD%E0%B8%94%E0%B8%B4%E0%B8%99%E0%B9%81%E0%B8%94%E0%B8%87-delivery/3-CZJTA35CCLAHR2)
 
