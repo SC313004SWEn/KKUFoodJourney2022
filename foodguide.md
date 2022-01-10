@@ -136,6 +136,17 @@ On budget? No problem. There are plenty of delicious and affordable foods around
   * เวลาเปิด-ปิด : 18:00 - 23:30 น.
   * พิกัด : หลังมอ เยื้องกับสถานีตำรวจภูธรย่อย มข
 
+#### 5. โซล ชิกเก้น (กังสดาล)
+<img src="media/NamIncheon.jpg" width="500"/>
+
+*อ้างอิงรูปภาพจาก:* [Foodpanda ](https://www.foodpanda.co.th/th/restaurant/v7up/seoul-chicken-kangsadarn)
+
+  * เป็นร้านอาหารเกาหลีที่อร่อยมากๆ ไก่มีความใกล้เคียงกับ Bonchon
+  * แนะนำซอสเผ็ดอร่อยมากกกกกกกกกกกกกกกกกก
+  * ราคาอยู่ในระดับกลางๆ
+  * เวลาเปิด-ปิด : 11:00 - 20:45 น.
+  * พิกัด : กังสดาล [Google Maps](https://goo.gl/maps/nwu9VKXpzxujQcDq6)
+
 ## <a name="esan"></a>Authentic E-SAN Foods :cow: :evergreen_tree: :evergreen_tree: :horse:
 Wanna eat like the locals? Try these.
 
