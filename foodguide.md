@@ -102,6 +102,15 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 > เปิดทุกวัน 08.00-17.00 น.
 > > พิกัด:ใกล้ สมาคมศิษย์เก่ามหาวิทยาลัยขอนแก่น
 
+#### 8. ชาโบว์
+
+<img src="media/tealotus.png" width="500"/>
+
+*อ้างอิงข้อมูลและภาพจาก:* [FB Fan Page](https://www.facebook.com/1506654109551742/posts/1597155350501617/)
+
+> ร้านกาแฟ กินทันที อิ่มแล้วจ๊า
+> เปิดทุกวัน 08.00-21.00 น.
+> > พิกัด:ใกล้ สมาคมศิษย์เก่ามหาวิทยาลัยขอนแก่น
 
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
 On budget? No problem. There are plenty of delicious and affordable foods around KKU.
