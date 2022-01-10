@@ -29,6 +29,16 @@ Something you can not miss when visiting KKU
   * เวลาเปิด-ปิด : 11:00 - 19:00 น.
   * พิกัด : หอพักอินเตอร์ มหาวิทยาลัยขอนแก่น
 
+#### 3. พิสมัย
+
+<img src="media/pisamai.JPG" width="500"/>
+
+*อ้างอิงข้อมูลและภาพจาก:* [FB Fan Page](https://www.facebook.com/%E0%B8%9E%E0%B8%B4%E0%B8%AA%E0%B8%A1%E0%B8%B1%E0%B8%A2-324692708372559/)
+
+  * อาหารจานเดียว ก๋วยเตี๋ยว เบเกอรี/เค้ก 
+  * ร้านเปิดวันจันทร์ - เสาร์ เวลา 10:30 - 20:30 น.
+  * พิกัด : ซอยโกโก้มอ ตรงข้ามสนามหญ้าเทียม
+
 ## <a name="cafe"></a>Cafe :coffee: :cake: :tea:
 Here are the best places where you can enjoy your a cup of coffee and delicious desserts.
 #### 1. Cafe de Forest
