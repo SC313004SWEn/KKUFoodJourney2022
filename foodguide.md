@@ -166,6 +166,16 @@ On budget? No problem. There are plenty of delicious and affordable foods around
   * เวลาเปิด-ปิด : 11:00 - 20:45 น.
   * พิกัด : กังสดาล [Google Maps](https://goo.gl/maps/nwu9VKXpzxujQcDq6)
 
+#### 6. มหาเจียว หลังมอ
+<img src="media/Ma_Ha_Jiew.jpg" width="500"/>
+
+*อ้างอิงรูปภาพจาก:* [Foodpanda](https://www.foodpanda.co.th/th/restaurant/z1jc/maha-fast-food-by-maha-jieow)
+
+  * เป็นร้านอาหารตามสั่งที่มีความโดดเด่นคือเมนูไข่เจียวใส่ชีส
+  * แนะนำให้ใส่ชีสแผ่นเพิ่ม
+  * เวลาเปิด-ปิด : 10:00 - 20:00 น.
+  * พิกัด : หลังมอแถว U-Center
+
 ## <a name="esan"></a>Authentic E-SAN Foods :cow: :evergreen_tree: :evergreen_tree: :horse:
 Wanna eat like the locals? Try these.
 
