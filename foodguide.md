@@ -122,6 +122,15 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 > เปิดทุกวัน 08.00-21.00 น.
 > > พิกัด:ใกล้ สมาคมศิษย์เก่ามหาวิทยาลัยขอนแก่น
 
+#### 9. Cocoa More
+<img src="media/cocoamore.jpg" width="500"/>
+
+*อ้างอิงข้อมูลและภาพจาก:* [Wongnai](https://www.wongnai.com/news/cocoa-more-khonkaen)
+
+> โกโก้เข้มข้น รสชาติโกโก้แท้ สูตรเฉพาะของร้านเท่านั้น 
+> เปิดทุกวัน 16:00-23:59 น.
+> > พิกัด:ตั้งอยู่ติดถนนริมรั้วหลังมข. ประตูเขียว หรือถนนเส้นหลังหออินเตอร์ ร้านจะอยู่เลยคลีนิกหมอฟันมานิดนึง ก่อนถึงสีนานวลสาขาหลังมข 
+
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
 On budget? No problem. There are plenty of delicious and affordable foods around KKU.
 #### 1. ศุนย์อาหารและบริการ 2 มข. (โรงชาย)
