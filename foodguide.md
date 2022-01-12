@@ -188,7 +188,7 @@ On budget? No problem. There are plenty of delicious and affordable foods around
 > > พิกัด: ถ.ชวนชื่น ตำบลในเมือง อำเภอเมืองขอนแก่น จ.ขอนแก่น
 
 
-#### 7.มะม่วงป้ากุ้ง
+#### 8. มะม่วงป้ากุ้ง
 <img src="media/mango-pakung.jpg" width="500"/>
 
 *อ้างอิงรูปภาพจาก:* [Facebook : รีวิวอีสาน ](https://www.facebook.com/reviewkhonkaen/photos/pcb.3713221498786956/3713215475454225)
