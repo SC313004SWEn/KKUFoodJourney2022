@@ -188,6 +188,17 @@ On budget? No problem. There are plenty of delicious and affordable foods around
 > > พิกัด: ถ.ชวนชื่น ตำบลในเมือง อำเภอเมืองขอนแก่น จ.ขอนแก่น
 
 
+#### 7.มะม่วงป้ากุ้ง
+<img src="media/mango-pakung.jpg" width="500"/>
+
+*อ้างอิงรูปภาพจาก:* [Facebook : รีวิวอีสาน ](https://www.facebook.com/reviewkhonkaen/photos/pcb.3713221498786956/3713215475454225)
+
+  * ร้านมะม่วงที่ได้มะม่วงเยอะมากกกก คุ้มค่าในราคา 25 บาท
+  * แถมน้ำจิ้มก็เด็ดมากกก อร่อยมากๆ ทุกคนจะได้ชิมมะม่วงในรสชาติที่ตัวเองชอบ
+  * เวลาเปิด ประมาณ 11.00 - 18.00 น.
+  * พิกัด : ข้างหอสมุด เยื้องทางคณะเกษตรศาสตร์
+
+
 ## <a name="esan"></a>Authentic E-SAN Foods :cow: :evergreen_tree: :evergreen_tree: :horse:
 Wanna eat like the locals? Try these.
 
