@@ -175,6 +175,18 @@ On budget? No problem. There are plenty of delicious and affordable foods around
   * แนะนำให้ใส่ชีสแผ่นเพิ่ม
   * เวลาเปิด-ปิด : 10:00 - 20:00 น.
   * พิกัด : หลังมอแถว U-Center
+ 
+ 
+#### 7. ซัวเถา
+
+<img src="media/ซัวเถา.jpg" width="500"/>
+
+*อ้างอิงข้อมูลและภาพจาก:* [FB Fan Page]https://www.facebook.com/%E0%B8%A3%E0%B9%89%E0%B8%B2%E0%B8%99%E0%B8%8B%E0%B8%B1%E0%B8%A7%E0%B9%80%E0%B8%96%E0%B8%B2%E0%B8%82%E0%B8%AD%E0%B8%99%E0%B9%81%E0%B8%81%E0%B9%88%E0%B8%99-151378016559218906572890176452/
+
+> ร้านอาหารไทย 
+> เวลาเปิด-ปิด : 12:00-21:30 น.
+> > พิกัด: ถนนรอบเมือง ขอนแก่น(ตรงสี่แยก)
+
 
 ## <a name="esan"></a>Authentic E-SAN Foods :cow: :evergreen_tree: :evergreen_tree: :horse:
 Wanna eat like the locals? Try these.
