@@ -39,6 +39,7 @@ Something you can not miss when visiting KKU
   * ร้านเปิดวันจันทร์ - เสาร์ เวลา 10:30 - 20:30 น.
   * พิกัด : ซอยโกโก้มอ ตรงข้ามสนามหญ้าเทียม
 
+
 ## <a name="cafe"></a>Cafe :coffee: :cake: :tea:
 Here are the best places where you can enjoy your a cup of coffee and delicious desserts.
 #### 1. Cafe de Forest
@@ -266,6 +267,15 @@ Love to impress you Instragram followers? Here are the places where you can take
 โทร: 089-942-5157
 พิกัด: ที่ตั้ง 222/12 ถนนกัลปพฤกษ์ ฝั่งกังสดาล-ชุมชนตะวันใหม่ ต.ในเมือง, 40000 อ.เมือง ขอนแก่น (ร้านอยู่ในซอยร้านประจำ ข้างฌาร์ม บูทีค รีสอร์ท)
 
+#### 5. สีนานวล คาเฟ่ กังสดาลมข.
+
+<img src="media/สีนานวล.png" width="500">
+
+*อ้างอิงข้อมูลและภาพจาก:* [wongnai](https://www.wongnai.com/listings/must-try-restaurants-khonkaen)
+
+>ร้านอาหารเมนูน่ากิน รสชาติดี ร้านตำนานในขอนแก่น ร้านตกแต่งมีสไตล์ อาหารที่นี่ใส่ภาชนะมาเสิร์ฟดูสวยงาม เมนูเด็ด “ปลากะพงยำมะม่วง” และ “แกงส้มชะอมกุ้ง” อาหารอร่อย และมีคุณภาพ ร้านนี้เหมาะที่จะพาครอบครัวมากิน อาหารมีหลากหลาย เข้ากับทุกคนในครอบครัว 
+โทร: 043001200
+พิกัด: 164 160 หมู่ที่ 14 ถนน ตะวันใหม่ ตำบลในเมือง อำเภอเมืองขอนแก่น ขอนแก่น 40000
 
 ## <a name="event"></a>Public Events :dancer: :dancers:
 Looking for souvenirs or buying the essestials? There are many places for you to go.  KKU is full of public events with food stalls. Some are free. Some are not. Here is the list.
