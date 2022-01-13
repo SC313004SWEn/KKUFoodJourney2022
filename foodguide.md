@@ -149,7 +149,7 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
 On budget? No problem. There are plenty of delicious and affordable foods around KKU.
-#### 1. ศุนย์อาหารและบริการ 2 มข. (โรงชาย)
+#### 1. ศูนย์อาหารและบริการ 2 มข. (โรงชาย)
 
 <img src="media/foodcourt2.jpg" width="500"></img>
 
