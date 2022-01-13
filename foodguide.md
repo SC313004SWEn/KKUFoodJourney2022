@@ -246,6 +246,9 @@ Wanna eat like the locals? Try these.
 Love to impress you Instragram followers? Here are the places where you can take stunning pictures, nice foods, and excellent services.
 
 #### 1. Bayasita@KKU
+
+<img src="media/bayasita.jpg" width="500"/>
+
 > ไหว้เจ้าพ่อมอดินแดงเสร็จไปรับประทานอาหารในบรรยากาศหรูหราต่อ ให้บริการทั้งร้านอาหาร ที่พัก และคาเฟ่ มีบริการอาหารที่ทำจากผลผลิตภายในรั่วมหาวิทยาลัยขอนแก่น
 > พิกัด: ตรงข้ามเจ้าพ่อมอดินแดง ติดคณะสัตวแพทยศาสตร์
 
