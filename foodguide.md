@@ -249,6 +249,8 @@ Love to impress you Instragram followers? Here are the places where you can take
 
 <img src="media/bayasita.jpg" width="500"/>
 
+รูปภาพจาก [Bayasita@KKU](https://bayasita.kku.ac.th/)
+
 > ไหว้เจ้าพ่อมอดินแดงเสร็จไปรับประทานอาหารในบรรยากาศหรูหราต่อ ให้บริการทั้งร้านอาหาร ที่พัก และคาเฟ่ มีบริการอาหารที่ทำจากผลผลิตภายในรั่วมหาวิทยาลัยขอนแก่น
 > พิกัด: ตรงข้ามเจ้าพ่อมอดินแดง ติดคณะสัตวแพทยศาสตร์
 
