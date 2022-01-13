@@ -132,16 +132,6 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 > เปิดทุกวัน 16:00-23:59 น.
 > > พิกัด:ตั้งอยู่ติดถนนริมรั้วหลังมข. ประตูเขียว หรือถนนเส้นหลังหออินเตอร์ ร้านจะอยู่เลยคลีนิกหมอฟันมานิดนึง ก่อนถึงสีนานวลสาขาหลังมข 
 
-#### 10. LULNa cafe
-
-<img src="media/LULNa cafe.jpg" width="500"/>
-
-*อ้างอิงข้อมูลและภาพจาก:* [รีวิวขอนแก่น](https://www.facebook.com/reviewkhonkaen/posts/2576618265780624/)
-
-> คาเฟ่บัวลอยนมสดลึกลับๆหลังมอ เมนูเด็ดคือบัวลอยนมสด ก้อนใหญ่ สอดไส้
-> เวลาเปิด-ปิด : 17.00-22.00 น. (หยุดวันอังคาร)
-> > พิกัด: ร้านอยู่หลังมอ เข้าซอยร้าน nobicha ตรงมาจนถึงสี่แยกหออยู่เฮง แล้วเลี้ยวขวา รถยนต์หาที่จอดรถยากหน่อย
-
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
 On budget? No problem. There are plenty of delicious and affordable foods around KKU.
 #### 1. ศุนย์อาหารและบริการ 2 มข. (โรงชาย)
