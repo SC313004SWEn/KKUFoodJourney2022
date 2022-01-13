@@ -150,6 +150,11 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
 On budget? No problem. There are plenty of delicious and affordable foods around KKU.
 #### 1. ศุนย์อาหารและบริการ 2 มข. (โรงชาย)
+
+<img src="media/foodcourt2.jpg" width="500"></img>
+
+*อ้างอิงข้อมูลและภาพจาก:* [Khon kean Link](https://forum.khonkaenlink.info/index.php?topic=17742692.0)
+
 > ถูกและดี มีอยู่จริง!! มีอาหารให้เลือกหลากหลาย ทั้งข้าวราดแกง อาหารตามสั่ง ก๋วยเตี๋่ยว ผลไม้ และขนมหวาน ตั้งแต่ราคาหลักสิบถึงหลักร้อย
 > พิกัด: เยื้องสนามกีฬากลาง มข.
 > เวลาเปิด-ปิด: ตลอดเวลา
