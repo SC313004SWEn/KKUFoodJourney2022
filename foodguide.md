@@ -31,7 +31,7 @@ Something you can not miss when visiting KKU
 
 #### 3. พิสมัย
 
-<img src="media/pisamai.JPG" width="500"/>
+<img src="media/pisamai.jpg" width="500"/>
 
 *อ้างอิงข้อมูลและภาพจาก:* [FB Fan Page](https://www.facebook.com/%E0%B8%9E%E0%B8%B4%E0%B8%AA%E0%B8%A1%E0%B8%B1%E0%B8%A2-324692708372559/)
 
