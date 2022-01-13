@@ -132,6 +132,16 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 > เปิดทุกวัน 16:00-23:59 น.
 > > พิกัด:ตั้งอยู่ติดถนนริมรั้วหลังมข. ประตูเขียว หรือถนนเส้นหลังหออินเตอร์ ร้านจะอยู่เลยคลีนิกหมอฟันมานิดนึง ก่อนถึงสีนานวลสาขาหลังมข 
 
+#### 10. นมวัวบิน
+
+<img src="media/nomvubin.jpg" width="500"/>
+
+*อ้างอิงข้อมูลและรูปภาพจาก:* [Facebook Fan Page](https://www.facebook.com/Nomvubin)
+
+> เป็นคาเฟ่ที่อยู่ใกล้ ม บรรยากาศดี ราคาก็ดี
+> เวลาเปิด-ปิด : 9:00-21:00 น.
+> พิกัด: ถนนหลัง มข. เยื้องซุยซุยบาร์ ร้านอยู่ติดกับก๋วยเตี๋ยวเรือสิบสาม
+
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
 On budget? No problem. There are plenty of delicious and affordable foods around KKU.
 #### 1. ศุนย์อาหารและบริการ 2 มข. (โรงชาย)
