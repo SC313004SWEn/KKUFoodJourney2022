@@ -325,6 +325,18 @@ Looking for souvenirs or buying the essestials? There are many places for you to
 * เวลาเปิด 15:00 - 21:00 น.</li>
 * พิกัด หลังอาคารศูนย์คอมเพล็กซ์ มหาวิทยาลัยขอนแก่น [Google Maps](https://www.google.com/maps?q=%E0%B8%95%E0%B8%A5%E0%B8%B2%E0%B8%94%E0%B8%A1%E0%B8%AD+%E0%B8%A1%E0%B8%82&source=lmns&bih=937&biw=1920&rlz=1C1CHBF_enTH911TH911&hl=en&sa=X&ved=2ahUKEwjDkeuH37D1AhV4BrcAHcZ6DgUQ_AUoAXoECAEQAQ)
 
+#### 2. เปิดท้าย มข.
+
+<img src="media/perdtai.jpg" width="500"></img>
+
+*อ้างอิงรูปภาพจาก:* [Wongnai](https://www.wongnai.com/trips/night-market-khonkaen-university)
+*ติดตามข่าวสารจากเพจหลักจาก:* [FB Fanpage](https://th-th.facebook.com/marketkku/)
+
+* แหล่งช็อปปิงสุดฮิตของคนขอนแก่นในมข. แบ่งแยกโซนอาหารเเละโซนของใช้ มีสินค้ามือสองให้เลือกอีกด้วย</li>
+* เวลาเปิด 17:00 - 22:00 น.</li>
+* พิกัด บริเวณลานจอดรถด้านศูนย์ประชุมอเนกประสงค์กาญจนาภิเษก [Google Maps](https://www.google.com/maps?q=%E0%B9%80%E0%B8%9B%E0%B8%B4%E0%B8%94%E0%B8%97%E0%B9%89%E0%B8%B2%E0%B8%A2+%E0%B8%A1%E0%B8%82.&source=lmns&bih=937&biw=1920&rlz=1C1CHBF_enTH911TH911&hl=th&sa=X&ved=2ahUKEwiZqcKE4bD1AhWyQ3wKHZ5KCyoQ_AUoAXoECAEQAQ)
+
+
 ## <a name="grab"></a> Grab and Go :running: :muscle:
 In a rush? Let's grab a bite to eat.
 
