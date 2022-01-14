@@ -156,6 +156,14 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 > เวลาเปิด-ปิด : 17.00-22.00 น. หยุดวันอังคาร
 > พิกัด: ร้านอยู่หลังมอ เข้าซอยร้าน nobicha ตรงมาจนถึงสี่แยกหออยู่เฮง แล้วเลี้ยวขวา รถยนต์หาที่จอดรถยากหน่อย 
 
+#### 12. Mango's House
+<img src="media/Mango's House.jpg" width="500">
+
+> คาเฟ่มะม่วงน่ารักกลางเมืองขอนแก่น มีการตกแต่งสไตล์น่ารัก สีพาสเทล
+> เวลาเปิด-ปิด 10.00 - 22.00 น. เปิดทุกวัน
+> พิกัด: ร้านตั้งอยู่ในโครงการ the wall khonkaen ถนนรื่นรมย์
+> ร้านไม่ได้มีแค่เมนูเครื่องดื่มอยู่เดียว ยังมีไอศกรีมเพิ่มความเย็นฉ่ำ อย่างเช่น รสมะม่วง รสมะพร้าว
+
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
 On budget? No problem. There are plenty of delicious and affordable foods around KKU.
 #### 1. ศูนย์อาหารและบริการ 2 มข. (โรงชาย)
