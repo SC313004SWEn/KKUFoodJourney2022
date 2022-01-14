@@ -386,3 +386,11 @@ In a rush? Let's grab a bite to eat.
 
   * ร้านโจ๊กและก๋วยจั๊บที่พึ่งในยามกลางคืน
   * เวลาเปิด : 00.00 - 23.59 น.
+
+#### 6. Beta House (เบต้าเฮาส์)สาขา 2
+<img src="media/โจ็ป้าแดง.png" width="500"/>
+
+*อ้างอิงข้อมูลและรูปภาพจาก:* [Wongnai](https://www.wongnai.com/restaurants/247697ZH-beta-house-%E0%B8%AA%E0%B8%B2%E0%B8%82%E0%B8%B2-2)
+
+  * ร้านไก่ทอด ฟาสต์ฟู้ดจานด่วน
+  * เวลาเปิด : 11.00 - 23.59 น.
