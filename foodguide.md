@@ -330,7 +330,7 @@ Looking for souvenirs or buying the essestials? There are many places for you to
 <img src="media/perdtai.jpg" width="500"></img>
 
 *อ้างอิงรูปภาพจาก:* [Wongnai](https://www.wongnai.com/trips/night-market-khonkaen-university)
-*ติดตามข่าวสารจากเพจหลักจาก:* [FB Fanpage](https://th-th.facebook.com/marketkku/)
+*ติดตามข่าวสารจากเพจหลัก:* [FB Fanpage](https://th-th.facebook.com/marketkku/)
 
 * แหล่งช็อปปิงสุดฮิตของคนขอนแก่นในมข. แบ่งแยกโซนอาหารเเละโซนของใช้ มีสินค้ามือสองให้เลือกอีกด้วย</li>
 * เวลาเปิด 17:00 - 22:00 น.</li>
