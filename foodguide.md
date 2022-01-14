@@ -320,11 +320,10 @@ Looking for souvenirs or buying the essestials? There are many places for you to
 
 *อ้างอิงข้อมูลและภาพจาก:* [Wongnai](https://www.wongnai.com/trips/night-markets-khonkaen)
 
-<ul>
-<li>> ตลาดมอดินแดง Aavenue หรือ ตลาดโรงชาย มีของให้เลือกช็อปมากมายทั้งอาหารและเสื้อผ้า บริเวณที่ขายอาหาร มีพื้นที่สำหรับนั่งกินไว้บริการ</li>
-<li>> เวลาเปิด 15:00 - 21:00 น.</li>
-<li>> พิกัด หลังอาคารศูนย์คอมเพล็กซ์ มหาวิทยาลัยขอนแก่น [Google Maps](https://www.google.com/maps?q=%E0%B8%95%E0%B8%A5%E0%B8%B2%E0%B8%94%E0%B8%A1%E0%B8%AD+%E0%B8%A1%E0%B8%82&source=lmns&bih=937&biw=1920&rlz=1C1CHBF_enTH911TH911&hl=en&sa=X&ved=2ahUKEwjDkeuH37D1AhV4BrcAHcZ6DgUQ_AUoAXoECAEQAQ)</li>
-</ul>
+
+* ตลาดมอดินแดง Aavenue หรือ ตลาดโรงชาย มีของให้เลือกช็อปมากมายทั้งอาหารและเสื้อผ้า บริเวณที่ขายอาหาร มีพื้นที่สำหรับนั่งกินไว้บริการ</li>
+* เวลาเปิด 15:00 - 21:00 น.</li>
+* พิกัด หลังอาคารศูนย์คอมเพล็กซ์ มหาวิทยาลัยขอนแก่น [Google Maps](https://www.google.com/maps?q=%E0%B8%95%E0%B8%A5%E0%B8%B2%E0%B8%94%E0%B8%A1%E0%B8%AD+%E0%B8%A1%E0%B8%82&source=lmns&bih=937&biw=1920&rlz=1C1CHBF_enTH911TH911&hl=en&sa=X&ved=2ahUKEwjDkeuH37D1AhV4BrcAHcZ6DgUQ_AUoAXoECAEQAQ)
 
 ## <a name="grab"></a> Grab and Go :running: :muscle:
 In a rush? Let's grab a bite to eat.
