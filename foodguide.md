@@ -157,7 +157,7 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 > พิกัด: ร้านอยู่หลังมอ เข้าซอยร้าน nobicha ตรงมาจนถึงสี่แยกหออยู่เฮง แล้วเลี้ยวขวา รถยนต์หาที่จอดรถยากหน่อย 
 
 #### 12. Mango's House
-<img src="media/Mango's House.jpg" width="500">
+<img src="media/Mango_H.jpg" width="500">
 
 > คาเฟ่มะม่วงน่ารักกลางเมืองขอนแก่น มีการตกแต่งสไตล์น่ารัก สีพาสเทล
 > เวลาเปิด-ปิด 10.00 - 22.00 น. เปิดทุกวัน
