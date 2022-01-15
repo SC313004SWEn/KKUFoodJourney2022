@@ -164,6 +164,13 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 > พิกัด: ร้านตั้งอยู่ในโครงการ the wall khonkaen ถนนรื่นรมย์
 > ร้านไม่ได้มีแค่เมนูเครื่องดื่มอยู่เดียว ยังมีไอศกรีมเพิ่มความเย็นฉ่ำ อย่างเช่น รสมะม่วง รสมะพร้าว
 
+#### 13. Nectar Bowls
+<img src="media/nectar_bowls.jpg" width="500"/>
+
+> Smoothie Cafe แห่งใหม่ในเมืองขอนแก่น ร้านน่ารัก มีเครื่องดื่มน่ารับประทาน
+> เวลาเปิด-ปิด : เปิดทุกวันเวลา 10.00-21.00 น. 
+> พิกัด: โครงการ The Wall ถ.รื่นรมย์ จ.ขอนแก่น
+
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
 On budget? No problem. There are plenty of delicious and affordable foods around KKU.
 #### 1. ศูนย์อาหารและบริการ 2 มข. (โรงชาย)
