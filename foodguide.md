@@ -190,7 +190,7 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 
 > ร้านเครื่องดื่ม ชานมไข่มุก นมสด ม๊อกเทล ขนมปัง
 > เวลาเปิด-ปิด : 11:00 - 22:00 ทุกวัน
-> > พิกัด: หลังมหาวิทยาลัยขอนแก่น ทางออกฝั่ง U-Center Khon Kaen District, Khon Kaen
+> พิกัด: หลังมหาวิทยาลัยขอนแก่น ทางออกฝั่ง U-Center Khon Kaen District, Khon Kaen
 
 #### 15. Koneko Coffee - โคะเนะโกะ หลังม.ขอนแก่น
 
