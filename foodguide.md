@@ -44,6 +44,17 @@ Something you can not miss when visiting KKU
   * ร้านเปิดวันจันทร์ - เสาร์ เวลา 10:30 - 20:30 น.
   * พิกัด : ซอยโกโก้มอ ตรงข้ามสนามหญ้าเทียม
 
+#### 4. Little Osaga
+
+<img src="media/Little_Osaga.JPG" width="500"/>
+
+*อ้างอิงข้อมูลและภาพจาก:* [14 ร้านเด็ด น่าโดน ลัดเลาะรอบ "ม.ขอนแก่น"](https://www.ryoiireview.com/article/khonkaenuniversity-all-food-around/)
+
+  * เมนูทางร้านน่าทานมากกกก แถมราคาเหมาะกับนักศึกษาอีกด้วย
+  * เมนูแนะนำ ซาซิมิ และข้าวหน้าปลาไหล
+  * เวลาเปิด-ปิด : 12:00 - 22:00 น.
+  * พิกัด : 122/9 ถนน อดุลยาราม 2 ขอนแก่น (บึงหนองแวง ฝั่งกังสดาล)
+
 
 ## <a name="cafe"></a>Cafe :coffee: :cake: :tea:
 Here are the best places where you can enjoy your a cup of coffee and delicious desserts.
