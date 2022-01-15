@@ -46,7 +46,7 @@ Something you can not miss when visiting KKU
 
 #### 4. Little Osaga
 
-<img src="media/Little_Osaga.JPG" width="500"/>
+<img src="media/Little_Osaga.jpg" width="500"/>
 
 *อ้างอิงข้อมูลและภาพจาก:* [14 ร้านเด็ด น่าโดน ลัดเลาะรอบ "ม.ขอนแก่น"](https://www.ryoiireview.com/article/khonkaenuniversity-all-food-around/)
 
