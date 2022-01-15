@@ -182,6 +182,16 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 > เวลาเปิด-ปิด : เปิดทุกวันเวลา 10.00-21.00 น. 
 > พิกัด: โครงการ The Wall ถ.รื่นรมย์ จ.ขอนแก่น
 
+#### 14. The Bitters Sweet KKU หลังม.ขอนแก่น
+
+<img src="media/thebitters.jpg" width="500"/>
+
+*อ้างอิงข้อมูลและภาพจาก:* [FB Fan Page]https://www.facebook.com/The-Bitters-Sweet-KKU-%E0%B8%AB%E0%B8%A5%E0%B8%B1%E0%B8%87%E0%B8%A1%E0%B8%82%E0%B8%AD%E0%B8%99%E0%B9%81%E0%B8%81%E0%B9%88%E0%B8%99-163233974353142/?ref=page_internal
+
+> ร้านเครื่องดื่ม ชานมไข่มุก นมสด ม๊อกเทล ขนมปัง
+> เวลาเปิด-ปิด : 11:00 - 22:00 ทุกวัน
+> > พิกัด: หลังมหาวิทยาลัยขอนแก่น ทางออกฝั่ง U-Center Khon Kaen District, Khon Kaen
+
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
 On budget? No problem. There are plenty of delicious and affordable foods around KKU.
 #### 1. ศูนย์อาหารและบริการ 2 มข. (โรงชาย)
