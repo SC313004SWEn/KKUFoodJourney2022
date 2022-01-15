@@ -192,6 +192,15 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 > เวลาเปิด-ปิด : 11:00 - 22:00 ทุกวัน
 > > พิกัด: หลังมหาวิทยาลัยขอนแก่น ทางออกฝั่ง U-Center Khon Kaen District, Khon Kaen
 
+#### 15. Koneko Coffee - โคะเนะโกะ หลังม.ขอนแก่น
+
+<img src="media/koneko.jpg" width="500"/>
+
+*อ้างอิงข้อมูลและภาพจาก:* [FB Fan Page] https://www.facebook.com/KonekoCoffeeKK
+> ร้านเครื่องดื่ม และอาหารตามสั่ง
+> เวลาเปิด-ปิด : 10:30 - 20:30 จันทร์ขเสาร์ หยุดอาทิตย์
+> พิกัด: 419/8 ม.27 ต.ศิลา อ.เมือง เทศบาลนครขอนแก่น 40000
+
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
 On budget? No problem. There are plenty of delicious and affordable foods around KKU.
 #### 1. ศูนย์อาหารและบริการ 2 มข. (โรงชาย)
