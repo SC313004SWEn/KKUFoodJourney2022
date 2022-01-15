@@ -413,7 +413,7 @@ In a rush? Let's grab a bite to eat.
   * ร้านโจ๊กและก๋วยจั๊บที่พึ่งในยามกลางคืน
   * เวลาเปิด : 00.00 - 23.59 น.
 
-  #### 15. On-Zon ออนซอน แจ่วฮ้อน&ชาบู - ขอนแก่น
+  #### 6. On-Zon ออนซอน แจ่วฮ้อน&ชาบู - ขอนแก่น
 
 <img src="media/ออนซอน.jpg" width="500"></img>
 
@@ -423,7 +423,7 @@ In a rush? Let's grab a bite to eat.
 > เวลาเปิด 16.00-10.30 น. 
 > 161 บ้านโนนม่วง หมู่ที่ 3 ต.ศิลา Khon Kaen District, Khon Kaen, Thailand 40000
 
-#### 16. กะเพราซาวห้า กังศดาล - ขอนแก่น
+#### 7. กะเพราซาวห้า กังศดาล - ขอนแก่น
 
 <img src="media/krapowsawha.jpg" width="500"></img>
 
