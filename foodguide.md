@@ -423,7 +423,7 @@ In a rush? Let's grab a bite to eat.
 > เวลาเปิด 16.00-10.30 น. 
 > 161 บ้านโนนม่วง หมู่ที่ 3 ต.ศิลา Khon Kaen District, Khon Kaen, Thailand 40000
 
-#### 7. กะเพราซาวห้า กังศดาล - ขอนแก่น
+#### 7. กะเพราซาวห้า กังสดาล - ขอนแก่น
 
 <img src="media/krapowsawha.jpg" width="500"></img>
 
