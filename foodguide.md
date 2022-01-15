@@ -201,6 +201,17 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 > เวลาเปิด-ปิด : 10:30 - 20:30 จันทร์ขเสาร์ หยุดอาทิตย์
 > พิกัด: 419/8 ม.27 ต.ศิลา อ.เมือง เทศบาลนครขอนแก่น 40000
 
+#### 16. Uncle Duck Cafe - อั๊งเคิล ดั๊ก คาเฟ่ ขอนแก่น
+
+<img src="media/UncleDuckCafe.jpg" width="500"/>
+
+*อ้างอิงข้อมูลและภาพจาก:* https://www.tripgether.com/อัปเดตเรื่องเที่ยว/5-คาเฟ่ขอนแก่นเปิดใหม่/
+
+> คาเฟ่และร้านอาหารสไตล์มินิมอล มีเมนูอาหารและเครื่องดื่ม
+> เวลาเปิด-ปิด : 10:00 - 20:00 น.
+> พิกัด: ต.ศิลา อ.เมือง เทศบาลนครขอนแก่น 40000
+> โทร: 062-285-6885
+
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
 On budget? No problem. There are plenty of delicious and affordable foods around KKU.
 #### 1. ศูนย์อาหารและบริการ 2 มข. (โรงชาย)
