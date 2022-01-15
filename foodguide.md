@@ -282,6 +282,14 @@ Wanna eat like the locals? Try these.
 > เวลาเปิด-ปิด : 16:00 - 11:00 น. 
 > พิกัด: ถนนมิตรภาพ
 
+#### 2. แตงโมแซ่บเวอร์ หลังมอ
+<img src="media/tangmo-zabwer.jpg" width="500"/>
+*อ้างอิงข้อมูลและรูปภาพจาก:* (https://www.wongnai.com/restaurants/242357zi-%E0%B9%81%E0%B8%95%E0%B8%87%E0%B9%82%E0%B8%A1%E0%B9%81%E0%B8%8B%E0%B9%88%E0%B8%9A%E0%B9%80%E0%B8%A7%E0%B8%AD%E0%B8%A3%E0%B9%8C-%E0%B8%AB%E0%B8%A5%E0%B8%B1%E0%B8%87%E0%B8%A1%E0%B8%AD)
+
+> เมนูแนะนำ: ตำข้าวโพดไข่เค็ม
+> เวลาเปิด-ปิดร้าน: อังคาร-อาทิตย์  10:00-20:00 น.
+> เบอร์โทร : 0934415075
+
 ## <a name="finedin"></a>Fine Dining and Restaurants  :camera: :sunflower:
 Love to impress you Instragram followers? Here are the places where you can take stunning pictures, nice foods, and excellent services.
 
