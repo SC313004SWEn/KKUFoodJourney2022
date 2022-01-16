@@ -266,6 +266,14 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 > พิกัด: 225, 80 ซอย กสิกรทุ่งสร้าง 23/2 ในเมือง, เมือง, Khon Kaen 40000
 > เบอร์โทร : 065 901 7134
 
+#### 20. Tibbetts Coffee House
+
+<img src="media/Tibbetts Coffe House.jpg" width="500"/>
+
+อ้างอิงข้อมูลและภาพจาก: https://www.wongnai.com/restaurants/tibbettscoffee
+ * เวลาเปิด-ปิด : อังคาร - ศุกร์ เวลา 	09:30 - 16:30  / เสาร์,อาทิตย์  09:00 - 17:00
+ * มี Wi-Fi บริการ
+ * มี บริการ เดลีเวอรี
 
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
 On budget? No problem. There are plenty of delicious and affordable foods around KKU.
