@@ -255,6 +255,18 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 > พิกัด:43/30 หมู่ที่14 อ.เมือง จ.ขอนแก่น 40000 
 > เบอร์โทร : 086-715-5611
 
+#### 19. Haneul Home Cafe
+
+<img src="media/Hanuelhomecafe.jpg" width="500"/>
+
+*อ้างอิงข้อมูลและภาพจาก: https://www.facebook.com/haneulhomecafe
+> ร้านฮานึล โฮม คาเฟ่ เมืองขอนแก่น ร้านคาเฟ่สไตล์เกาหลี มีความมินิมอล มีมุมให้ถ่ายรูป ค่อนข้างเยอะ
+> มีบริการ Grab
+> เวลาเปิด-ปิด : 11.00 - 18.00 น.
+> พิกัด: 225, 80 ซอย กสิกรทุ่งสร้าง 23/2 ในเมือง, เมือง, Khon Kaen 40000
+> เบอร์โทร : 065 901 7134
+
+
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
 On budget? No problem. There are plenty of delicious and affordable foods around KKU.
 #### 1. ศูนย์อาหารและบริการ 2 มข. (โรงชาย)
