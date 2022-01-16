@@ -3,6 +3,7 @@
 
 Visiting KKU for the first time? This guide will give you mouthwatering choices around KKU through the experiences of the locals.
 
+
 ## <a name="menu"></a>Quick Links
 * [Must Try](#musttry)
 * [Cafe](#cafe)
@@ -12,6 +13,7 @@ Visiting KKU for the first time? This guide will give you mouthwatering choices 
 * [Public Events](#event)
 * [Grab and Go](#grab)
 
+---
 ## <a name="musttry"></a>Must Try!! :rice: :ramen:
 Something you can not miss when visiting KKU
 
@@ -78,6 +80,7 @@ Something you can not miss when visiting KKU
 > พิกัด: (ซอยหอ NP Park) หลังมหาวิทยาลัยขอนแก่น
 > โทร: 062-103-9339
 
+---
 ## <a name="cafe"></a>Cafe :coffee: :cake: :tea:
 Here are the best places where you can enjoy your a cup of coffee and delicious desserts.
 #### 1. Cafe de Forest
@@ -297,6 +300,7 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 > พิกัด: Bypass, ขอนแก่น 40000
 > เบอร์โทร : 080 452 9415
 
+
 #### 23. NewBury Coffee House
 
 <img src="media/NewBury_Coffee_House.jpg" width="500"/>
@@ -306,6 +310,8 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 >รีวิว : <br>บรรณยากาศภายในร้านเงียบสงบ เหมาะแก่การพักผ่อน อ่านหนังสือและทำงาน <br>เมนูเครื่องดื่มและของหวานมีความหลากหลาย
 
 
+
+---
 
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
 On budget? No problem. There are plenty of delicious and affordable foods around KKU.
@@ -396,6 +402,7 @@ On budget? No problem. There are plenty of delicious and affordable foods around
   * เวลาเปิด ประมาณ 11:00 - 19:00 น.
   * พิกัด : ซอยอิงมอ 3
 
+---
 ## <a name="esan"></a>Authentic E-SAN Foods :cow: :evergreen_tree: :evergreen_tree: :horse:
 Wanna eat like the locals? Try these.
 
@@ -414,6 +421,7 @@ Wanna eat like the locals? Try these.
 > เวลาเปิด-ปิดร้าน: อังคาร-อาทิตย์  10:00-20:00 น.
 > เบอร์โทร : 0934415075
 
+---
 ## <a name="finedin"></a>Fine Dining and Restaurants  :camera: :sunflower:
 Love to impress you Instragram followers? Here are the places where you can take stunning pictures, nice foods, and excellent services.
 
@@ -469,6 +477,7 @@ Love to impress you Instragram followers? Here are the places where you can take
 โทร: 043001200
 พิกัด: 164 160 หมู่ที่ 14 ถนน ตะวันใหม่ ตำบลในเมือง อำเภอเมืองขอนแก่น ขอนแก่น 40000
 
+---
 ## <a name="event"></a>Public Events :dancer: :dancers:
 Looking for souvenirs or buying the essestials? There are many places for you to go.  KKU is full of public events with food stalls. Some are free. Some are not. Here is the list.
 
@@ -494,7 +503,7 @@ Looking for souvenirs or buying the essestials? There are many places for you to
 * เวลาเปิด 17:00 - 22:00 น.</li>
 * พิกัด บริเวณลานจอดรถด้านศูนย์ประชุมอเนกประสงค์กาญจนาภิเษก [Google Maps](https://www.google.com/maps?q=%E0%B9%80%E0%B8%9B%E0%B8%B4%E0%B8%94%E0%B8%97%E0%B9%89%E0%B8%B2%E0%B8%A2+%E0%B8%A1%E0%B8%82.&source=lmns&bih=937&biw=1920&rlz=1C1CHBF_enTH911TH911&hl=th&sa=X&ved=2ahUKEwiZqcKE4bD1AhWyQ3wKHZ5KCyoQ_AUoAXoECAEQAQ)
 
-
+---
 ## <a name="grab"></a> Grab and Go :running: :muscle:
 In a rush? Let's grab a bite to eat.
 
@@ -585,4 +594,20 @@ In a rush? Let's grab a bite to eat.
 > เวลาเปิด 7.30 - 23.30 น.
 > หลังมอ ขอนเเก่น
 
+#### 10. Because Kitchen
+
+<img src="https://scontent.fbkk27-1.fna.fbcdn.net/v/t39.30808-6/241749845_152959187004515_6951939803345801791_n.jpg?_nc_cat=110&ccb=1-5&_nc_sid=8bfeb9&_nc_ohc=Gs_3eWWV_nAAX9o_ysO&_nc_ht=scontent.fbkk27-1.fna&oh=00_AT-CLIoi7JvhuRF_2bjcyHZMlN0Iy1AG6-dfmzj7U1EC6Q&oe=61E8A2FD" width="500"></img>
+
+>GRAB MEGA SALE ชุดอิ่มคุ้ม
+>"ลด 40%"
+
+- กะเพราหมูสับพริกแห้ง
+- ผัดพะแนงหมูชิ้น
+- ไส้กรอกไก่ทอด
+- ข้าวเปล่า 2
+
+📣ทั้งหมดนี้แค่ 149.- บาท (ลดจาก 239.-)
+`Open: 11:00 - 16:00`
+
+*อ้างอิงข้อมูลและภาพจาก:* [Because Kitchen](https://www.facebook.com/Because-Kitchen-108135888153512/?ref=page_internal)
 
