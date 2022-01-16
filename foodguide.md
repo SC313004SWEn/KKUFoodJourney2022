@@ -297,6 +297,15 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 > พิกัด: Bypass, ขอนแก่น 40000
 > เบอร์โทร : 080 452 9415
 
+#### 23. NewBury Coffee House
+
+<img src="media/NewBury_Coffee_House.jpg" width="500"/>
+
+อ้างอิงข้อมูลและภาพจาก: https://www.facebook.com/newburycoffeehouse
+>เวลาเปิด-ปิด : <br>จันทร์ - พฤหัส ,  เสาร์-อาทิตย์ เวลา 	11:00 - 22:30 / ศุกร์  11:00 - 18:00
+>รีวิว : <br>บรรณยากาศภายในร้านเงียบสงบ เหมาะแก่การพักผ่อน อ่านหนังสือและทำงาน <br>เมนูเครื่องดื่มและของหวานมีความหลากหลาย
+
+
 
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
 On budget? No problem. There are plenty of delicious and affordable foods around KKU.
