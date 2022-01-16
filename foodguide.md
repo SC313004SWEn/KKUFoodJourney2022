@@ -287,6 +287,17 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
  * พิกัด : 14 ซอยอดุลยาราม 1 ตำบลในเมือง อำเภอเมืองขอนแก่น จังหวัดขอนแก่น
  * เบอร์โทร : 089 626 7025
 
+#### 22. Chokdee Cafe
+
+<img src="media/ChokdeeCafe.jpg" width="500"/>
+
+*อ้างอิงข้อมูลและภาพจาก: https://www.facebook.com/ChokdeecafeKK/
+> โชคดี คาเฟ่” คาเฟ่วิวหลักล้านอาหารหลักร้อย เปิดใหม่ล่าสุดที่จังหวัดขอนแก่น วิวสวย เครื่องดื่มดี ขนมอร่อย!
+> เวลาเปิด-ปิด : 09.00 - 19.00 น.
+> พิกัด: Bypass, ขอนแก่น 40000
+> เบอร์โทร : 080 452 9415
+
+
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
 On budget? No problem. There are plenty of delicious and affordable foods around KKU.
 #### 1. ศูนย์อาหารและบริการ 2 มข. (โรงชาย)
