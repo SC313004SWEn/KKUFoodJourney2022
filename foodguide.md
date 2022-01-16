@@ -64,7 +64,19 @@ Something you can not miss when visiting KKU
 >ร้านอาหารที่ขายแต่เมนูกะเพรา ให้เยอะ มีจานที่แปลกประหลาด
 >เวลาเปิด-ปิด : 11.00 - 15.00 น.
 >พิกัด: หลังมอ มหาวิทยาลัยขอนแก่น ตำบล ศิลา อำเภอเมืองขอนแก่น ขอนแก่น 40000
->โทร: 086-645-8367 
+>โทร: 086-645-8367
+
+#### 6. ครัวกินกะกิน - หลังมอ
+
+<img src="media/ครัวกินกะกิน.jpg" width="500"/>
+
+*อ้างอิงข้อมูลและภาพจาก:* https://www.facebook.com/byBenzKhonkaen
+
+> ร้านอาหารตามสั่ง อร่อยจุใจ ให้เยอะ ราคาย่อมเยา
+> มีบริการ Lineman และ Grab สามารถใช้คนละครึ่งได้
+> เวลาเปิด-ปิด : 17.00 - 02:00 น.
+> พิกัด: (ซอยหอ NP Park) หลังมหาวิทยาลัยขอนแก่น
+> โทร: 062-103-9339
 
 ## <a name="cafe"></a>Cafe :coffee: :cake: :tea:
 Here are the best places where you can enjoy your a cup of coffee and delicious desserts.
@@ -221,18 +233,6 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 > เวลาเปิด-ปิด : 10:00 - 20:00 น.
 > พิกัด: ต.ศิลา อ.เมือง เทศบาลนครขอนแก่น 40000
 > โทร: 062-285-6885
-
-#### 17. ครัวกินกะกิน - หลังมอ
-
-<img src="media/ครัวกินกะกิน.jpg" width="500"/>
-
-*อ้างอิงข้อมูลและภาพจาก:* https://www.facebook.com/byBenzKhonkaen
-
-> ร้านอาหารตามสั่ง อร่อยจุใจ ให้เยอะ ราคาย่อมเยา
-> มีบริการ Lineman และ Grab สามารถใช้คนละครึ่งได้
-> เวลาเปิด-ปิด : 17.00 - 02:00 น.
-> พิกัด: (ซอยหอ NP Park) หลังมหาวิทยาลัยขอนแก่น
-> โทร: 062-103-9339
 
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
 On budget? No problem. There are plenty of delicious and affordable foods around KKU.
