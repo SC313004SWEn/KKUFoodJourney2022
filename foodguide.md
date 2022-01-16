@@ -234,6 +234,16 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 > พิกัด: ต.ศิลา อ.เมือง เทศบาลนครขอนแก่น 40000
 > โทร: 062-285-6885
 
+#### 17. Chomnom Cafe - ชมนม คาเฟ่ ขอนแก่น
+
+<img src="media/Chomnom_Cafe.jpg" width="500"/>
+
+*อ้างอิงข้อมูลและภาพจาก:* [Facebook Fan Page](https://www.facebook.com/%E0%B8%8A%E0%B8%A1%E0%B8%99%E0%B8%A1-%E0%B8%84%E0%B8%B2%E0%B9%80%E0%B8%9F%E0%B9%88-Chomnom-Cafe-%E0%B8%A3%E0%B8%B0%E0%B9%80%E0%B8%9A%E0%B8%B5%E0%B8%A2%E0%B8%87%E0%B8%94%E0%B8%B2%E0%B8%A7-Craft-Studio-109820540361406/photos/?ref=page_internal)
+
+> คาเฟ่และร้านอาหารสไตล์มินิมอล มีเมนูอาหารและเครื่องดื่ม
+> เวลาเปิด-ปิด : 17:10 - 23:45 น.
+> พิกัด: ข้างหอพักฟิวเจอร์ เทศบาลนครขอนแก่น 40000
+
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
 On budget? No problem. There are plenty of delicious and affordable foods around KKU.
 #### 1. ศูนย์อาหารและบริการ 2 มข. (โรงชาย)
