@@ -216,7 +216,7 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 
 <img src="media/ครัวกินกะกิน.jpg" width="500"/>
 
-*อ้างอิงข้อมูลและภาพจาก: https://www.facebook.com/byBenzKhonkaen
+*อ้างอิงข้อมูลและภาพจาก:* https://www.facebook.com/byBenzKhonkaen
 
 > ร้านอาหารตามสั่ง อร่อยจุใจ ให้เยอะ ราคาย่อมเยา
 > มีบริการ Lineman และ Grab สามารถใช้คนละครึ่งได้
@@ -224,8 +224,20 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 > พิกัด: (ซอยหอ NP Park) หลังมหาวิทยาลัยขอนแก่น
 > โทร: 062-103-9339
 
+### 18. แล้วแต่ กะเพราแท้ - หลังมอ
+
+<img src="media/แล้วแต่กะเพรา.jpg" width="500"/>
+
+*อ้างอิงข้อมูลและภาพจาก:* https://zappnuar.com/review-khonkaen/laew-tae/
+
+>ร้านอาหารที่ขายแต่เมนูกะเพรา ให้เยอะ มีจานที่แปลกประหลาด
+>เวลาเปิด-ปิด : 11.00 - 15.00 น.
+>พิกัด: หลังมอ มหาวิทยาลัยขอนแก่น ตำบล ศิลา อำเภอเมืองขอนแก่น ขอนแก่น 40000
+>โทร: 086-645-8367 
+
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
 On budget? No problem. There are plenty of delicious and affordable foods around KKU.
+
 #### 1. ศูนย์อาหารและบริการ 2 มข. (โรงชาย)
 
 <img src="media/foodcourt2.jpg" width="500"></img>
