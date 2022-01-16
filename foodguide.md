@@ -275,6 +275,18 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
  * มี Wi-Fi บริการ
  * มี บริการ เดลีเวอรี
 
+#### 21. April Kaffee
+
+<img src="media/AprilKaffee.jpg" width="500"/>
+
+*อ้างอิงข้อมูลจาก:* [Wongnai](https://www.wongnai.com/restaurants/675535nX-april-kaffe)
+*อ้างอิงรูปภาพจาก:* [April Kaffee](https://www.facebook.com/April-Kaffee-105170134491887/?ref=page_internal)
+ * คาเฟ่เครื่องดื่มชา กาเเฟ นม โซดา เเละขนมเค้ก  
+ * มีบริการ LINE MAN 
+ * เวลาเปิด-ปิด : 10.00 - 18.00 น.
+ * พิกัด : 14 ซอยอดุลยาราม 1 ตำบลในเมือง อำเภอเมืองขอนแก่น จังหวัดขอนแก่น
+ * เบอร์โทร : 089 626 7025
+
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
 On budget? No problem. There are plenty of delicious and affordable foods around KKU.
 #### 1. ศูนย์อาหารและบริการ 2 มข. (โรงชาย)
