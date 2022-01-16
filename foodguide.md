@@ -469,3 +469,13 @@ In a rush? Let's grab a bite to eat.
 > ร้านกะเพราซาวห้า
 > เวลาเปิด 11.00 - 21.30 น. 
 > หน้าร้านนวด จันทรา กังสดาล ซอยวุ่นวาย
+
+#### 8. Beta House (เบต้าเฮาส์)สาขา 2 
+
+<img src="media/betahouse.jpg" width="500"></img>
+
+*อ้างอิงข้อมูลและภาพจาก:* [Wongnai](https://www.wongnai.com/restaurants/247697ZH-beta-house-%E0%B8%AA%E0%B8%B2%E0%B8%82%E0%B8%B2-2)
+
+> ร้านBetahouse สาขา2
+> เวลาเปิด 11.00 - 23.59 น. 
+> กังสดาล ขอนแก่น
