@@ -237,18 +237,6 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 > พิกัด: ต.ศิลา อ.เมือง เทศบาลนครขอนแก่น 40000
 > โทร: 062-285-6885
 
-#### 17. ครัวกินกะกิน - หลังมอ
-
-<img src="media/ครัวกินกะกิน.jpg" width="500"/>
-
-*อ้างอิงข้อมูลและภาพจาก: https://www.facebook.com/byBenzKhonkaen
-
-> ร้านอาหารตามสั่ง อร่อยจุใจ ให้เยอะ ราคาย่อมเยา
-> มีบริการ Lineman และ Grab สามารถใช้คนละครึ่งได้
-> เวลาเปิด-ปิด : 17.00 - 02:00 น.
-> พิกัด: (ซอยหอ NP Park) หลังมหาวิทยาลัยขอนแก่น
-> โทร: 062-103-9339
-
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
 On budget? No problem. There are plenty of delicious and affordable foods around KKU.
 #### 1. ศูนย์อาหารและบริการ 2 มข. (โรงชาย)
