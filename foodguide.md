@@ -77,7 +77,6 @@ Something you can not miss when visiting KKU
 > เวลาเปิด-ปิด : 17.00 - 02:00 น.
 > พิกัด: (ซอยหอ NP Park) หลังมหาวิทยาลัยขอนแก่น
 > โทร: 062-103-9339
->>>>>>> 798fe3cff3a91c787609ea8d342c587fa55d594f
 
 ## <a name="cafe"></a>Cafe :coffee: :cake: :tea:
 Here are the best places where you can enjoy your a cup of coffee and delicious desserts.
