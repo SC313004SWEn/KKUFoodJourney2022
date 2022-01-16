@@ -55,28 +55,6 @@ Something you can not miss when visiting KKU
   * เวลาเปิด-ปิด : 12:00 - 22:00 น.
   * พิกัด : 122/9 ถนน อดุลยาราม 2 ขอนแก่น (บึงหนองแวง ฝั่งกังสดาล)
 
-### 5. แล้วแต่ กะเพราแท้ - หลังมอ
-
-<img src="media/แล้วแต่กะเพรา.jpg" width="500"/>
-
-*อ้างอิงข้อมูลและภาพจาก:* https://zappnuar.com/review-khonkaen/laew-tae/
-
->ร้านอาหารที่ขายแต่เมนูกะเพรา ให้เยอะ มีจานที่แปลกประหลาด
->เวลาเปิด-ปิด : 11.00 - 15.00 น.
->พิกัด: หลังมอ มหาวิทยาลัยขอนแก่น ตำบล ศิลา อำเภอเมืองขอนแก่น ขอนแก่น 40000
->โทร: 086-645-8367
-
-#### 6. ครัวกินกะกิน - หลังมอ
-
-<img src="media/ครัวกินกะกิน.jpg" width="500"/>
-
-*อ้างอิงข้อมูลและภาพจาก:* https://www.facebook.com/byBenzKhonkaen
-
-> ร้านอาหารตามสั่ง อร่อยจุใจ ให้เยอะ ราคาย่อมเยา
-> มีบริการ Lineman และ Grab สามารถใช้คนละครึ่งได้
-> เวลาเปิด-ปิด : 17.00 - 02:00 น.
-> พิกัด: (ซอยหอ NP Park) หลังมหาวิทยาลัยขอนแก่น
-> โทร: 062-103-9339
 
 ## <a name="cafe"></a>Cafe :coffee: :cake: :tea:
 Here are the best places where you can enjoy your a cup of coffee and delicious desserts.
@@ -234,9 +212,20 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 > พิกัด: ต.ศิลา อ.เมือง เทศบาลนครขอนแก่น 40000
 > โทร: 062-285-6885
 
+#### 17. ครัวกินกะกิน - หลังมอ
+
+<img src="media/ครัวกินกะกิน.jpg" width="500"/>
+
+*อ้างอิงข้อมูลและภาพจาก: https://www.facebook.com/byBenzKhonkaen
+
+> ร้านอาหารตามสั่ง อร่อยจุใจ ให้เยอะ ราคาย่อมเยา
+> มีบริการ Lineman และ Grab สามารถใช้คนละครึ่งได้
+> เวลาเปิด-ปิด : 17.00 - 02:00 น.
+> พิกัด: (ซอยหอ NP Park) หลังมหาวิทยาลัยขอนแก่น
+> โทร: 062-103-9339
+
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
 On budget? No problem. There are plenty of delicious and affordable foods around KKU.
-
 #### 1. ศูนย์อาหารและบริการ 2 มข. (โรงชาย)
 
 <img src="media/foodcourt2.jpg" width="500"></img>
@@ -502,3 +491,15 @@ In a rush? Let's grab a bite to eat.
 > ร้านBetahouse สาขา2
 > เวลาเปิด 11.00 - 23.59 น. 
 > กังสดาล ขอนแก่น
+
+#### 9. Mark FC (มาร์ค เอ็ฟซี) 
+
+<img src="media/MarkFC.jpg" width="500"></img>
+
+*อ้างอิงข้อมูลและภาพจาก:* [Facebook Fan Page](https://www.facebook.com/MarkFC.KHONKAEN/)
+
+> ร้านMark FC
+> เวลาเปิด 7.30 - 23.30 น.
+> หลังมอ ขอนเเก่น
+
+
