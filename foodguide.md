@@ -483,6 +483,18 @@ Love to impress you Instragram followers? Here are the places where you can take
 โทร: 043001200
 พิกัด: 164 160 หมู่ที่ 14 ถนน ตะวันใหม่ ตำบลในเมือง อำเภอเมืองขอนแก่น ขอนแก่น 40000
 
+#### 6. แจ่วฮ้อนอภิรมย์ สาขา มข 
+
+<img src="media/apiromkku.jpg" width="500"/>
+
+*อ้างอิงข้อมูลและภาพจาก:* [Wongnai](https://www.wongnai.com/restaurants/290471Zv-%E0%B9%81%E0%B8%88%E0%B9%88%E0%B8%A7%E0%B8%AE%E0%B9%89%E0%B8%AD%E0%B8%99%E0%B8%AD%E0%B8%A0%E0%B8%B4%E0%B8%A3%E0%B8%A1%E0%B8%A2%E0%B9%8C-%E0%B8%AA%E0%B8%B2%E0%B8%82%E0%B8%B2-%E0%B8%A1%E0%B8%82) & [Facebook Fanpage](https://web.facebook.com/apiromkku/?_rdc=1&_rdr)
+
+* ร้านแจ่วฮ้อนอภิรมย์ มีความเอกลักษณ์อยู่ที่น้ำจิ้มสูตรเด็ดเข้มข้น เพราะเป็นได้ทั้งน้ำซุปและน้ำจิ้มในขวดเดียวกัน เมนูก็มีทั้งชุดเนื้อหมู เนื้อโค และซีฟู้ด อีกทั้งยังมีเมนูของหวานให้เลือกได้อีกหลากหลาย
+* ร้านมีบริการที่จอดรถ และ Wi-fi ฟรี หรือหากไม่สะดวกมานั่งทานที่ร้านก็ยังมีบริการเดลิเวอรีส่งให้ถึงที่
+* พิกัดร้าน : ตั้งอยู่ฝั่งกังสดาล 43/134 ม.14 ซ.อดุลยาราม ถ.มิตรภาพ ต.ในเมือง อ.เมืองขอนแก่น เทศบาลนครขอนแก่น 40000 
+* เวลาเปิดร้าน : ทุกวัน เวลา 11:00 น. - 21:00 น.
+* เบอร์โทร : 0910549232 , 0951780890 
+
 ---
 ## <a name="event"></a>Public Events :dancer: :dancers:
 Looking for souvenirs or buying the essestials? There are many places for you to go.  KKU is full of public events with food stalls. Some are free. Some are not. Here is the list.
