@@ -244,6 +244,17 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 > เวลาเปิด-ปิด : 17:10 - 23:45 น.
 > พิกัด: ข้างหอพักฟิวเจอร์ เทศบาลนครขอนแก่น 40000
 
+#### 18. Sri Brown cafe'
+
+<img src="media/Sribrown.jpg" width="500"/>
+
+*อ้างอิงข้อมูลและภาพจาก: https://www.facebook.com/Sribrowncafe/
+> คาเฟ่เบเกอรี/เค้กของหวาน 
+> มีบริการ Grab, Foodpanda 
+> เวลาเปิด-ปิด : 07.30 - 19.00 น.
+> พิกัด:43/30 หมู่ที่14 อ.เมือง จ.ขอนแก่น 40000 
+> เบอร์โทร : 086-715-5611
+
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
 On budget? No problem. There are plenty of delicious and affordable foods around KKU.
 #### 1. ศูนย์อาหารและบริการ 2 มข. (โรงชาย)
