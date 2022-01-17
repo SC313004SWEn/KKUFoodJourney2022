@@ -440,6 +440,13 @@ On budget? No problem. There are plenty of delicious and affordable foods around
   * แนะนำเมนู ข้าวมันไก่ต้ม
   * เวลาเปิด ประมาณ 7:00–20:00 น.
   * พิกัด : ศูนย์อาหารกังสดาล ถ. กัลปพฤกษ์ ตำบลในเมือง อำเภอเมืองขอนแก่น ขอนแก่น 40000
+#### 11. ครัวหม้อดิน
+<img src="media/ครัวหม้อดิน.jpg" width="500"/>
+อ้างอิงรูปภาพจาก:https://www.facebook.com/pages/category/Restaurant/%E0%B8%84%E0%B8%A3%E0%B8%B1%E0%B8%A7%E0%B8%AB%E0%B8%A1%E0%B9%89%E0%B8%AD%E0%B8%94%E0%B8%B4%E0%B8%99-%E0%B8%AB%E0%B8%A5%E0%B8%B1%E0%B8%87%E0%B8%A1%E0%B8%82-100327841613325/
+  *
+  * แนะนำเมนู ต้มยำกุ้ง
+  * เวลาเปิด-ปิด ประมาณ 9:30–17:00 น.
+  * เบอร์โทร:0897128916
   
 ## <a name="esan"></a>Authentic E-SAN Foods :cow: :evergreen_tree: :evergreen_tree: :horse:
 Wanna eat like the locals? Try these.
@@ -460,7 +467,7 @@ Wanna eat like the locals? Try these.
 > เบอร์โทร : 0934415075
 
 #### 3. ลาบ ก้อย ซ.นานา 
-<img src="media/LabKoiSoiNaNa.jpg" width="500"/>
+<img src="media/ลาบก้อย.jpg" width="500"/>
 *อ้างอิงข้อมูลและรูปภาพจาก:* (https://www.wongnai.com/photos/86ef962a6208414e887cf2fcafebb4c4)
 
 > เมนูแนะนำ: เนื้อเสือร้องไห้
