@@ -460,7 +460,7 @@ Wanna eat like the locals? Try these.
 > เบอร์โทร : 0934415075
 
 #### 3. ลาบ ก้อย ซ.นานา 
-<img src="media/ลาบก้อย.jpg" width="500"/>
+<img src="media/LabKoiSoiNaNa.jpg" width="500"/>
 *อ้างอิงข้อมูลและรูปภาพจาก:* (https://www.wongnai.com/photos/86ef962a6208414e887cf2fcafebb4c4)
 
 > เมนูแนะนำ: เนื้อเสือร้องไห้
