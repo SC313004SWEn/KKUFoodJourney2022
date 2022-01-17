@@ -451,6 +451,17 @@ Wanna eat like the locals? Try these.
 > เวลาเปิด-ปิดร้าน: อังคาร-อาทิตย์  10:00-20:00 น.
 > เบอร์โทร : 0934415075
 
+#### 3. ลาบ ก้อย ซ.นานา 
+<img src="media/ลาบก้อย.jpg" width="500"/>
+*อ้างอิงข้อมูลและรูปภาพจาก:* (https://www.wongnai.com/photos/86ef962a6208414e887cf2fcafebb4c4)
+
+> เมนูแนะนำ: เนื้อเสือร้องไห้
+> เวลาเปิด-ปิดร้าน : จันทร์	15:30 - 02:00
+> อังคาร	15:30 - 23:30
+> พุธ	00:00 - 02:00
+> พฤหัสบดี - อาทิตย์	15:30 - 02:00 
+> เบอร์โทร : 0817171795
+
 ---
 ## <a name="finedin"></a>Fine Dining and Restaurants  :camera: :sunflower:
 Love to impress you Instragram followers? Here are the places where you can take stunning pictures, nice foods, and excellent services.
