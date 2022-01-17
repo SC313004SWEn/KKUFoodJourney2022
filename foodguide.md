@@ -651,7 +651,8 @@ Love to impress you Instragram followers? Here are the places where you can take
 
 <img src="media/ยำกุ้งสด.jpg" width="500"/>
 
-* อ้างอิงข้อมูลและภาพจาก:* [Retty](https://retty.co.th/area/PRO43/ARE481/LCAT29/CAT1129/)
+*อ้างอิงข้อมูลและภาพจาก:* [Retty](https://retty.co.th/area/PRO43/ARE481/LCAT29/CAT1129/)
+
 * อาหารไทย
 * ราคาประมาณ 250 บาท 
 * หลัง มข ตำบลศิลา อำเภอเมืองขอนแก่น ขอนแก่น (ติดกับร้าน ชิวล์บาร์)
