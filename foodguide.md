@@ -629,3 +629,12 @@ In a rush? Let's grab a bite to eat.
 
 *อ้างอิงข้อมูลและภาพจาก:* [Because Kitchen](https://www.facebook.com/Because-Kitchen-108135888153512/?ref=page_internal)
 
+#### 11. กะบับไก่ชีสพัทยาในตำนาน สาขาขอนแก่น 
+
+<img src="media/กะบับไก่ชีสพัทยาในตำนาน.jpg" width="500"></img>
+
+*อ้างอิงข้อมูลและภาพจาก:* [Wongnai](https://www.wongnai.com/restaurants/483210ft-กะบับไก่ชีสพัทยาในตำนาน-สาขาขอนแก่น)
+
+> ร้านกะบับไก่ชีสพัทยาในตำนาน สาขาขอนแก่น
+> เวลาเปิด 11.30 - 23.59 น. 
+> ตลาดอามามอลล์ หลังมหาวิทยาลัยขอนแก่น
