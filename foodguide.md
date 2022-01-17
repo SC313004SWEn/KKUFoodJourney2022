@@ -379,6 +379,16 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
  * เป็นร้านกาแฟที่รวม co-working space ไว้ที่เดียวกัน เหมาะกับการมานั่งจิบกาแฟทำงาน อ่านหนังสือ มีมุมสวยๆไว้ถ่ายรูป
  * เวลาเปิด-ปิด : เปิดทุกวันเวลา 07.00- 18.00 น. 
  * พิกัด: 123/109 ถนน มอดินแดง ขอนแก่น (เข้าทางประตูใหญ่มข. ฝั่งถนนมิตรภาพ ผ่านวงเวียน จะเห็นร้านอยู่ทางขวามือ กลับรถอันแรก อยู่เยื้อง ๆ ตรงข้ามคณะวิทย์) 
+ 
+#### 33. From Scratch Bakeshop & Café 
+<img src="media/From Scratch Cafe .jpg" width="500"/>
+*อ้างอิงข้อมูลและรูปภาพจาก:https://www.wongnai.com/restaurants/581263pF-from-scratch-khon-kaen <br>
+- ร้านเบเกอรี่ชื่อดังของขอนแก่น ตัวร้านตกแต่งโทนสีขาวน้ำตาลอุ่นๆ ดูดี ส่วนขนมก็มีเยอะมากๆ แอบราคาสูงอยู่นะ <br>
+- เมนูเด็ด: Scone <br>
+- ร้านเปิดทุกวัน : 8:00-18:30 น.<br>
+- พิกัด : From Scratch Bakeshop & Café <br>
+(ในซอยแซ่บนัว ถนนมิตรภาพ ตรงข้าม ม.ข.)   
+                                               
 ---
 
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
