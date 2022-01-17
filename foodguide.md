@@ -365,6 +365,13 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 >เวลาเปิด-ปิด : 08:00 - 17:00
 >พิกัด : สโมสรอาจารย์(ใกล้คณะมนุษย์ศาสตร์) มหาวิทยาลัยขอนแก่น ขอนแก่น
 
+#### 31. Grow Up Café (โกลอัพ คาเฟ่)
+<img src="media/grow_up_cafe.jpg" width="500"/>
+*อ้างอิงข้อมูลและรูปภาพจาก:* https://www.wongnai.com/restaurants/118044yz-grow-up-caf%C3%A9
+> ร้านมีความธรรมชาติ แนวearth tone กาแฟที่นี่เขาคั่วเมล็ดเอง เหมาะกับการมาดื่มด่ำธรรมชาติ พูดคุยกับเพื่อน
+> ร้านเปิดทุกวัน เวลา 10:00 - 18:00
+> พิกัด ฝั่งกังสดาร มข. ตรงซอยข้างเสต็กรอยยิ้ม
+ 
 ---
 
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
