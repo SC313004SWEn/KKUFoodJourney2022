@@ -408,7 +408,14 @@ On budget? No problem. There are plenty of delicious and affordable foods around
   * เวลาเปิด ประมาณ 11:00 - 19:00 น.
   * พิกัด : ซอยอิงมอ 3
 
----
+#### 10. ณรงค์ข้าวมันไก่ตอน
+<img src="media/ณรงค์ข้าวมันไก่ตอน.jpg" width="500"/>
+อ้างอิงรูปภาพจาก:* [Facebook : รีวิวอีสาน ](https://www.google.com/maps/uv?pb=!1s0x31228a6080d890d1%3A0x2f61479dc3782481!3m1!7e115!4shttps%3A%2F%2Flh5.googleusercontent.com%2Fp%2FAF1QipNMtT7-H3zlPg_1UxYZEZYBXOwdFA6nMksO6Fjj%3Dw260-h175-n-k-no!5z4LiC4LmJ4Liy4Lin4Lih4Lix4LiZ4LmE4LiB4LmIIOC4guC4reC4meC5geC4geC5iOC4mSAtIOC4hOC5ieC4meC4q-C4suC4lOC5ieC4p-C4oiBHb29nbGU!15sCgIgAQ&imagekey=!1e10!2sAF1QipNMtT7-H3zlPg_1UxYZEZYBXOwdFA6nMksO6Fjj&hl=th)
+
+  * แนะนำเมนู ข้าวมันไก่ต้ม
+  * เวลาเปิด ประมาณ 7:00–20:00 น.
+  * พิกัด : ศูนย์อาหารกังสดาล ถ. กัลปพฤกษ์ ตำบลในเมือง อำเภอเมืองขอนแก่น ขอนแก่น 40000
+  
 ## <a name="esan"></a>Authentic E-SAN Foods :cow: :evergreen_tree: :evergreen_tree: :horse:
 Wanna eat like the locals? Try these.
 
