@@ -352,7 +352,7 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 > พิกัด: หลังมอขอ ตรงข้ามพรีเมียร์อพาร์ทเม้นท์ เข้าซอยมาประมาณ 50 เมตร
 
 #### 29. The Classic Coffee
-<img src="media/Theclassiccoffee" width="500"/>
+<img src="media/Theclassiccoffe" width="500"/>
 *อ้างอิงข้อมูลและรูปภาพจาก:* https://www.facebook.com/ChaturawitWannasen
 > คาเฟ่สำหรับคนที่ชอบกล้องฟิล์ม และอยากได้บรรยากาศสบายๆชิลๆจิบกาแฟยามบ่าย
 >เวลาเปิด-ปิด : 10:00 - 18:00
