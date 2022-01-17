@@ -468,7 +468,7 @@ Wanna eat like the locals? Try these.
 
 #### 3. ลาบ ก้อย ซ.นานา 
 <img src="media/LabKoiSoiNaNa.jpg" width="500"/>
-*อ้างอิงข้อมูลและรูปภาพจาก:* (https://www.wongnai.com/photos/86ef962a6208414e887cf2fcafebb4c4)
+*อ้างอิงข้อมูลและรูปภาพจาก:* (https://www.wongnai.com/photos/a1e12ba223314bb5917299733e563a6b)
 
 > เมนูแนะนำ: เนื้อเสือร้องไห้
 > เวลาเปิด-ปิดร้าน : จันทร์	15:30 - 02:00
