@@ -647,6 +647,17 @@ Love to impress you Instragram followers? Here are the places where you can take
 * สั่งผ่าน GRAB Food ก็ได้นะคร้าบบ  ปาร์ตี้กันที่บ้านลดความเสี่ยงโควิด
 * อ้างอิงข้อมูลและภาพจาก: [Facebook Fanpage](https://www.facebook.com/shabumheeuan/)
 
+#### 9. นัวคัก ยำแซ่บซี๊ดซ๊าด
+
+<img src="media/ยำกุ้งสด.jpg" width="500"/>
+
+* อ้างอิงข้อมูลและภาพจาก:* [Retty](https://retty.co.th/area/PRO43/ARE481/LCAT29/CAT1129/)
+* อาหารไทย
+* ราคาประมาณ 250 บาท 
+* หลัง มข ตำบลศิลา อำเภอเมืองขอนแก่น ขอนแก่น (ติดกับร้าน ชิวล์บาร์)
+* เวลาเปิดร้าน : ทุกวันจันทร์ถึงอาทิตย์ เวลา 11:00 น. - 23:00 น.
+* เบอร์โทร : 0951850946
+
 ---
 ## <a name="event"></a>Public Events :dancer: :dancers:
 Looking for souvenirs or buying the essestials? There are many places for you to go.  KKU is full of public events with food stalls. Some are free. Some are not. Here is the list.
