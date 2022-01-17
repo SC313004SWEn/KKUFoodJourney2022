@@ -341,6 +341,16 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 > เวลาเปิด-ปิด : เปิดทุกวัน	07:30 - 23:00 
 > พิกัด: 123/1188-1189 หมู่ที่ 16 (ใกล้ยูพลาซ่าหลังมข.) ขอนแก่น (ร้านหลังมข. ฝั่งโนนม่วง หลังหอชาย ถนนหน้ายูพลาซ่า (ยูเซ็นเตอร์))
 
+#### 28. MEmee house since 2008
+<img src="media/Memeehouse.jpg" width="500"/>
+*อ้างอิงข้อมูลและภาพจาก: https://www.facebook.com/MEmeehouse2008/
+> ร้านนมสด ขนมปัง ในตำนานของชาว มข.
+>เมนูเด็ด : ปังเย็น ขนมปังสังขยา BingSu Honey Toast โรตี ขนมปังชุบไข่
+>>บริการ WiFi รวดเร็วทันใจ
+>>>รองรับงานเลี้ยงสังสรรค์มากกว่า 100 ที่
+> เวลาเปิด-ปิด : เปิดทุกวัน	07:00 - 01:00 
+> พิกัด: หลังมอขอ ตรงข้ามพรีเมียร์อพาร์ทเม้นท์ เข้าซอยมาประมาณ 50 เมตร
+
 #### 29. The Classic Coffee
 <img src="media/Theclassiccoffee" width="500"/>
 *อ้างอิงข้อมูลและรูปภาพจาก:* https://www.facebook.com/ChaturawitWannasen
