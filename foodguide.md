@@ -88,6 +88,14 @@ Something you can not miss when visiting KKU
 
 > 421/5 หมู่ 27 บ้านโนนม่วง ตำบลศิลา เทศบาลนครขอนแก่น 40000
 
+#### 8.ร้านหม่าล่าขอนแก่น
+<img src="media/mala.jpg" width="500"/>
+*อ้างอิงข้อมูลและภาพจาก:* [Website](https://www.ryoiireview.com/article/khonkaenuniversity-all-food-around/)
+* ใครที่ชอบทานหม่าล่าบอกเลยว่าร้านนี้เค้าเด็ดจริงอะไรจริง เมนูทางร้านที่ทั้งกุ้ง หมู ไก่ เนื้อ ไส้ ลูกชิ้น และผักต่างๆ แถมยังเลือกระดับความเผ็ดได้แบบตามควยามชอบอีกด้วย!
+* ที่อยู่82 ซอย อดุลยาราม 1/3 ตำบล ในเมือง อำเภอเมืองขอนแก่น ขอนแก่น 40000
+* เบอร์ติดต่อโทร 083 282 9252
+* เวลา เปิด-ปิดทุกวัน 17:00 - 21:00น.
+
 ---
 ## <a name="cafe"></a>Cafe :coffee: :cake: :tea:
 Here are the best places where you can enjoy your a cup of coffee and delicious desserts.
