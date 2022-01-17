@@ -328,10 +328,11 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 
 #### 26. Samannachan Cafe
 <img src="media/samannachan.jpg" width="500"/>
-*อ้างอิงข้อมูลและภาพจาก:* https://www.facebook.com/samannachan.cafe
-> คาเฟ่สายชิล อาหารอร่อย เหมาะสำหรับอ่านหนังสือและทำงาน
-> เวลาเปิด-ปิด : เปิดทุกวันเวลา 09.30 - 22.00 น. 
-> พิกัด: หลังม.ขอนแก่น 458 ม.12 ซ.ชุติภาแกรนด์เฮ้าส์ ต.ศิลา
+
+อ้างอิงข้อมูลและภาพจาก: https://www.facebook.com/samannachan.cafe
+ * คาเฟ่สายชิล อาหารอร่อย เหมาะสำหรับอ่านหนังสือและทำงาน 
+ * เวลาเปิด-ปิด : เปิดทุกวันเวลา 09.30 - 22.00 น. 
+ * พิกัด: หลังม.ขอนแก่น 458 ม.12 ซ.ชุติภาแกรนด์เฮ้าส์ ต.ศิลา
 
 ---
 
