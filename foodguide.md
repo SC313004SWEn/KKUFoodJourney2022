@@ -470,6 +470,15 @@ Wanna eat like the locals? Try these.
 > พฤหัสบดี - อาทิตย์	15:30 - 02:00 
 > เบอร์โทร : 0817171795
 
+#### 4. ตำเมียป๋า
+<img src="media/ตำเมียป๋า.jpg" width="500"/>
+*อ้างอิงข้อมูลและรูปภาพจาก:* (https://www.wongnai.com/restaurants/425765cN-%E0%B8%95%E0%B8%B3%E0%B9%80%E0%B8%A1%E0%B8%B5%E0%B8%A2%E0%B8%9B%E0%B9%8B%E0%B8%B2/photos/0be9c4d1fb204df48c199f2a027cc52a)
+
+> เมนูแนะนำ: ตำเมียป๋า
+> เวลาเปิด-ปิดร้าน : จันทร์-พฤหัสบดี	10:30 - 20:30
+> เสาร์-อาทิตย์	 10:30 - 20:30
+> เบอร์โทร : 0868637141
+
 ---
 ## <a name="finedin"></a>Fine Dining and Restaurants  :camera: :sunflower:
 Love to impress you Instragram followers? Here are the places where you can take stunning pictures, nice foods, and excellent services.
