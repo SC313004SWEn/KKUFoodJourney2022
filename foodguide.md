@@ -654,3 +654,13 @@ In a rush? Let's grab a bite to eat.
 > ร้านกะบับไก่ชีสพัทยาในตำนาน สาขาขอนแก่น
 > เวลาเปิด 11.30 - 23.59 น. 
 > ตลาดอามามอลล์ หลังมหาวิทยาลัยขอนแก่น
+
+#### 12. สถานีอิ่มเอม EIM EM Station
+
+<img src="media/EimemStation.jpg" width="500"></img>
+
+*อ้างอิงข้อมูลและภาพจาก:* [Facebook Fan Page](https://www.facebook.com/Tell0926239874/?ref=page_internal)
+
+> สถานีอิ่มเอม EIM EM Station 
+> เวลาเปิด 9.00 - 23.00 น. 
+> หลังมหาวิทยาลัยขอนแก่น
