@@ -80,6 +80,14 @@ Something you can not miss when visiting KKU
 > พิกัด: (ซอยหอ NP Park) หลังมหาวิทยาลัยขอนแก่น
 > โทร: 062-103-9339
 
+#### 7.กิมเต็ก
+
+<img src="media/kimteak.jpg" width="500"/>
+
+*อ้างอิงข้อมูลและภาพจาก:* [kimteak](https://www.facebook.com/%E0%B8%81%E0%B8%B4%E0%B8%A1%E0%B9%80%E0%B8%95%E0%B9%87%E0%B8%81-%E9%87%91%E5%BE%B7-110158594774261/photos/140640648392722)
+
+> 421/5 หมู่ 27 บ้านโนนม่วง ตำบลศิลา เทศบาลนครขอนแก่น 40000
+
 ---
 ## <a name="cafe"></a>Cafe :coffee: :cake: :tea:
 Here are the best places where you can enjoy your a cup of coffee and delicious desserts.
