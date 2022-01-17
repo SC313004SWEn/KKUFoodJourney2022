@@ -511,6 +511,15 @@ Love to impress you Instragram followers? Here are the places where you can take
 * เวลาเปิดร้าน : ทุกวัน เวลา 11:00 น. - 21:00 น.
 * เบอร์โทร : 0910549232 , 0951780890 
 
+#### 7. NHAMAI
+
+<img src="media/Nhamai.jpg" width="500"/>
+
+* ราคาสบายกระเป๋า น้ำจิ้มอร่อยสุดๆ เหมาะพาแฟนไปเดท แต่ถ้าไม่มีก็ไปกับเพื่อนก็ได้ 55555555
+* ร้านเปิดทุกวัน 16.00 - 24.00 น.
+* 293/10 หมู่ 12 ต.ศิลา อ.เมือง เทศบาลนครขอนแก่น 40000 (ซอยหลังสนามเบสบอล)
+* อ้างอิงข้อมูลและภาพจาก:[Facebook Fanpage](https://web.facebook.com/Namai.KhonKaen/photos/pcb.1032196240660444/1032194313993970/)
+
 ---
 ## <a name="event"></a>Public Events :dancer: :dancers:
 Looking for souvenirs or buying the essestials? There are many places for you to go.  KKU is full of public events with food stalls. Some are free. Some are not. Here is the list.
