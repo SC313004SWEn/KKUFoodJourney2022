@@ -443,10 +443,10 @@ On budget? No problem. There are plenty of delicious and affordable foods around
 #### 11. ครัวหม้อดิน
 <img src="media/ครัวหม้อดิน.jpg" width="500"/>
 อ้างอิงรูปภาพจาก:https://www.facebook.com/pages/category/Restaurant/%E0%B8%84%E0%B8%A3%E0%B8%B1%E0%B8%A7%E0%B8%AB%E0%B8%A1%E0%B9%89%E0%B8%AD%E0%B8%94%E0%B8%B4%E0%B8%99-%E0%B8%AB%E0%B8%A5%E0%B8%B1%E0%B8%87%E0%B8%A1%E0%B8%82-100327841613325/
-  *
-  * แนะนำเมนู ต้มยำกุ้ง
-  * เวลาเปิด-ปิด ประมาณ 9:30–17:00 น.
-  * เบอร์โทร:0897128916
+  
+  > แนะนำเมนู ต้มยำกุ้ง
+  > เวลาเปิด-ปิด ประมาณ 9:30–17:00 น.
+  > บอร์โทร:0897128916
   
 ## <a name="esan"></a>Authentic E-SAN Foods :cow: :evergreen_tree: :evergreen_tree: :horse:
 Wanna eat like the locals? Try these.
@@ -485,6 +485,14 @@ Wanna eat like the locals? Try these.
 > เวลาเปิด-ปิดร้าน : จันทร์-พฤหัสบดี	10:30 - 20:30
 > เสาร์-อาทิตย์	 10:30 - 20:30
 > เบอร์โทร : 0868637141
+
+#### 5. ส้มตำวัยรุ่น
+<img src="media/ส้มตำวัยรุ่น.jpg" width="500"/>
+*อ้างอิงข้อมูลและรูปภาพจาก:* (https://www.wongnai.com/restaurants/285568dO-%E0%B8%AA%E0%B9%89%E0%B8%A1%E0%B8%95%E0%B8%B3%E0%B8%A7%E0%B8%B1%E0%B8%A2%E0%B8%A3%E0%B8%B8%E0%B9%88%E0%B8%99)
+
+> เมนูแนะนำ: เมี่ยงปลาตัวใหญ่สมราคา แนะนำอีกเมนูคือแกงเห็ดเด็ด รสชาติใช้ได้ ได้เยอะและคุ้มมาก ถือว่ารสชาติผ่านทุกเมนูเลย ร้านไม่ใหญ่แต่บริการดีประทับใจ
+> เวลาเปิด-ปิดร้าน : ทุกวัน 10:30 - 20:30
+> เบอร์โทร : 099-315-8589
 
 ---
 ## <a name="finedin"></a>Fine Dining and Restaurants  :camera: :sunflower:
