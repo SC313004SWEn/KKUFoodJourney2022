@@ -317,6 +317,15 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 > เวลาเปิด-ปิด : เปิดทุกวันเวลา 07.00 - 23.00 น. 
 > พิกัด: กังสดาล ถนนกัลปพฤกษ์
 
+### 25. กะขม cafe 
+
+<img src="media/กะขม cafe.jpg" width="500"/>
+
+*อ้างอิงข้อมูลและภาพจาก:* https://www.facebook.com/kakhom.society
+>คาเฟ่อ่านหนังสือ พูดคุยกับเพื่อนชิลๆ
+>เวลาเปิด-ปิด : เปิดทุกวันเวลา 12.00-22.30 น. 
+>พิกัด: ซอยหมู่บ้านมนัสวรรณ หลังมอ
+
 ---
 
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
