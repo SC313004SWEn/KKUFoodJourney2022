@@ -594,6 +594,17 @@ Love to impress you Instragram followers? Here are the places where you can take
 * 293/10 หมู่ 12 ต.ศิลา อ.เมือง เทศบาลนครขอนแก่น 40000 (ซอยหลังสนามเบสบอล)
 * อ้างอิงข้อมูลและภาพจาก:[Facebook Fanpage](https://web.facebook.com/Namai.KhonKaen/photos/pcb.1032196240660444/1032194313993970/)
 
+#### 8. ชาบูหมีอ้วน
+
+<img src="media/ชาบูหมีอ้วน.jpg" width="500"/>
+
+* ชาบูหมีอ้วน & ปิ้งย่าง วัตถุดิบสดใหม่แบบพรีเมี่ยมในรูปแบบบุฟเฟ่ต์ พร้อมบรรยากาศร้านแบบน่ารัก เปิดให้บริการแล้วที่มหาวิทยาลัยขอนแก่น
+* เปิดให้บริการ : 12.00-22.00 น.
+* เบอร์โทร : 086-2476681 , 061-3245479
+* พิกัด: หลังมหาวิทยาลัยขอนแก่น เส้นร้านเหล้าเยอะๆนั่นแหละจ้า มาไม่ถูกโทรหาได้เล๊ยยยย
+* สั่งผ่าน GRAB Food ก็ได้นะคร้าบบ  ปาร์ตี้กันที่บ้านลดความเสี่ยงโควิด
+* อ้างอิงข้อมูลและภาพจาก: [Facebook Fanpage](https://www.facebook.com/shabumheeuan/)
+
 ---
 ## <a name="event"></a>Public Events :dancer: :dancers:
 Looking for souvenirs or buying the essestials? There are many places for you to go.  KKU is full of public events with food stalls. Some are free. Some are not. Here is the list.
