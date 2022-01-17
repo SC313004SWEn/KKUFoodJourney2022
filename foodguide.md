@@ -486,6 +486,14 @@ Wanna eat like the locals? Try these.
 > เสาร์-อาทิตย์	 10:30 - 20:30
 > เบอร์โทร : 0868637141
 
+#### 5. ส้มตำวัยรุ่น
+<img src="media/ส้มตำวัยรุ่น.jpg" width="500"/>
+*อ้างอิงข้อมูลและรูปภาพจาก:* (https://www.wongnai.com/restaurants/285568dO-%E0%B8%AA%E0%B9%89%E0%B8%A1%E0%B8%95%E0%B8%B3%E0%B8%A7%E0%B8%B1%E0%B8%A2%E0%B8%A3%E0%B8%B8%E0%B9%88%E0%B8%99)
+
+> เมนูแนะนำ: เมี่ยงปลาตัวใหญ่สมราคา แนะนำอีกเมนูคือแกงเห็ดเด็ด รสชาติใช้ได้ ได้เยอะและคุ้มมาก ถือว่ารสชาติผ่านทุกเมนูเลย ร้านไม่ใหญ่แต่บริการดีประทับใจ
+> เวลาเปิด-ปิดร้าน : ทุกวัน 10:30 - 20:30
+> เบอร์โทร : 099-315-8589
+
 ---
 ## <a name="finedin"></a>Fine Dining and Restaurants  :camera: :sunflower:
 Love to impress you Instragram followers? Here are the places where you can take stunning pictures, nice foods, and excellent services.
