@@ -336,7 +336,7 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 
 #### 27. Dakota Cafe & Co-working Space
 <img src="media/Dakota.jpg" width="500"/>
-*อ้างอิงข้อมูลและภาพจาก:* https://www.wongnai.com/restaurants/421063OD-dakota-cafe-co-working-space/menu/items/7368284
+*อ้างอิงข้อมูลและภาพจาก:* (https://www.wongnai.com/restaurants/421063OD-dakota-cafe-co-working-space/menu/items/7368284)
 > คาเฟ่สไตล์ใหม่ที่นั่งเพียบมีหลายโซน มีทั่งแบบที่นั่งเดี่ยว นั่งกับพื้น โต๊ะใหญ่ ปลั๊กเพียบ บรรยากาศสบายๆ มีความเขียวผ่อนคลายดี เงียบสงบ เปิดเพลงแนวบรรเลงเบาๆ
 > เวลาเปิด-ปิด : เปิดทุกวัน	07:30 - 23:00 
 > พิกัด: 123/1188-1189 หมู่ที่ 16 (ใกล้ยูพลาซ่าหลังมข.) ขอนแก่น (ร้านหลังมข. ฝั่งโนนม่วง หลังหอชาย ถนนหน้ายูพลาซ่า (ยูเซ็นเตอร์))
@@ -463,6 +463,16 @@ On budget? No problem. There are plenty of delicious and affordable foods around
   > แนะนำเมนู ต้มยำกุ้ง
   > เวลาเปิด-ปิด ประมาณ 9:30–17:00 น.
   > บอร์โทร:0897128916
+
+#### 12.  บัวลอยไข่หวาน ทรงเครื่อง (กังสดาล)
+
+<img src="media/bualoy.jpg" width="500"/>
+
+*อ้างอิงรูปภาพและข้อมูลจาก :* [ขอนแก่น กินอะไรดี ? by Wongnai](https://www.facebook.com/HungryKhonkaen/photos/basw.AbopvXEYZVABbeoqI_PHIjwgjYTL5XEPgDrT9knxlgEigYq3wAwvZ5FKXqqnNuIQ7xrS07kyAKddTrncgRq2-ZYBGZ8WFgu4rbsw1i_16VJ6F9gC0ENNWF4HnVmJEkoR70NNPgyv8GQUR-_7Cj5JpZ6hVz2H1VsPJPGLcddcfzGwM5palR9gd6mE8RE-T294aVFmya8lehXucfVCXKR675Ox3RlsAgQ-2UWne9mIqo1JTpn9438JgJroPe2P8T5KXNlXFoIo_ID2s9WFpP1l-zFjWVK97iOZfHeCuAJUgQrm-xc6UtAmwM52AFK1kVdr0eh53AQ4CMh_CeAFTxxM8Ahp-bPORhZLr8jvDW_MToRKxKIxxR0TNfGZ1VbX5mqKewE/2806973199522931/?opaqueCursor=Abp1K-rzq9lZmwAISlL94Q6ppxP9hSKn6-G2vDRJpCTBxYTjxKyxK7GsU7sDri6OG8Y6Im49q-7JMS-mn3LD7_vtvfxFLZhghQRsooF1Ouisb1W6fWfSxVJG9dDyQpEUFMlwNhgHghZp70aWlAxWy433nZk6HEVLM_BdVFMjrrYNQaentq1zu0zZdGO_Plra5xm9AT6VkUZKSFl2_zuL1e9s4LQOOhXE-dnV0-zMnW06CLeJnWOc-HES7tFSb9eqa6Afv3r8Ihe9K2ccN1dbGN9X2BSnWFyyK66GB8U7Sk-P8VmvEqAFqxo0sB6p79HxDHGpoTXRAhvwj0gqXrNiKW9FsFuHv1vdA2kiI1vkFU_jxj9UE1Oz0U9rucF7P-5Cn1yzZj3ITL7orht0NCrw2fBapqb0q8LUq4yY34KXN628cigC-9vdpXHIMwQjWT1nGDXDWoNgUJhav5cgCVTYJUZ_tVCxqpgGQd01M3_7JSeRDSKP_tWvxM8PDfbDPY918Ck7JN3P20QtfjWC28dj1uHoiWnEDqLcJ3DmvvaK-7O7w5IT615NPlzKeE3uBbI20K4RdUYeDnlT5qb2PA3pXl6sbLd-Aer2q81asq0IFVP0b8HWstMEBf1ScvcWXyjxreJvQmqOJwKDvnagKz-BFC6Cg6cWekwU9t39ESL9X6bPDVvNTx8Dkr4q-nGF9UYIWLlIdLF6k2p-P8WZ6rcov6aF8g3l2CTkpNx2zzTtWXYeTkaEHI-e8O57_fG98xP1BXWs6o14GM35NCqm9GqL1-kXdtC7wHYT54w3K1Rwtrt_wOPpskn8tJ1772WVDyDQGWZqDlAlAB5yCstZv4-RHa7ni6VimYLpe5ww898ReYUl8t9N2iYkWfwXI9teHRYQUeM)
+
+  * แนะนำเมนู : บัวลอยไข่หวาน ทรงเครื่อง
+  * เวลาเปิด-ปิด : 16.00-20.00 น. โดยประมาณ
+  * พิกัด : บัวลอยไข่หวาน ทรงเครื่อง อยู่ฝั่งกังสดาล ซอยวุ่นวาย ตรงข้ามโจ๊กป้าแดง
   
 ## <a name="esan"></a>Authentic E-SAN Foods :cow: :evergreen_tree: :evergreen_tree: :horse:
 Wanna eat like the locals? Try these.
