@@ -358,6 +358,13 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 >เวลาเปิด-ปิด : 10:00 - 18:00
 >366 หมู่27 บ.โนนม่วง ต.ศิลา อ.เมือง จ.ขอนแก่น เทศบาลนครขอนแก่น 40000
 
+#### 30. Black Angel Coffee
+<img src="media/blackangel.jpg" width="500"/>
+*อ้างอิงข้อมูลและรูปภาพจาก:* https://www.wongnai.com/restaurants/279072uv-black-angel-coffee-%E0%B8%A5%E0%B8%B2%E0%B8%99%E0%B8%88%E0%B8%AD%E0%B8%94%E0%B8%A3%E0%B8%96%E0%B8%AA%E0%B9%82%E0%B8%A1%E0%B8%AA%E0%B8%A3%E0%B8%AD%E0%B8%B2%E0%B8%88%E0%B8%B2%E0%B8%A3%E0%B8%A2%E0%B9%8C-%E0%B8%A1%E0%B8%AB%E0%B8%B2%E0%B8%A7%E0%B8%B4%E0%B8%97%E0%B8%A2%E0%B8%B2%E0%B8%A5%E0%B8%B1%E0%B8%A2%E0%B8%82%E0%B8%AD%E0%B8%99%E0%B9%81%E0%B8%81%E0%B9%88%E0%B8%99
+> คาเฟ่สไตล์ตะวันตกผสมกับอเมซอน สำหรับคนที่ชอบป่าเขาบรรยากาศร่มรื่น กาแฟรสชาติกลมกล่อม ละมุนละไมลิ้น มีที่จอดรถพร้อม
+>เวลาเปิด-ปิด : 08:00 - 17:00
+>พิกัด : สโมสรอาจารย์(ใกล้คณะมนุษย์ศาสตร์) มหาวิทยาลัยขอนแก่น ขอนแก่น
+
 ---
 
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
