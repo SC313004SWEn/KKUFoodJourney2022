@@ -108,7 +108,14 @@ Something you can not miss when visiting KKU
   * "อร่อย ถูกปาก สะอาด น่ากิน" :thumbsup:
   * โทรศัพท์: 083 147 6868 :iphone:
 
+##### 10. เทียนเทียนติ่มซำ
 
+<img src="media/เทียนเทียน.jpg" width="600"/>
+
+*อ้างอิงข้อมูลและภาพจาก:* https://www.posttoday.com/life/travel/481374
+  * "อาหารสดใหม่และสะอาด การจัดร้านเน้นสไตล์ลอฟท์ สะอาด โปร่ง โล่งสบาย สำหรับรองรับกลุ่มลูกค้าทุกเพศทุกวัย"<br>
+  * " เปิดให้บริการทุกวันจันทร์-อาทิตย์ ตั้งแต่เวลา 09.00-21.00 น."<br>
+  * "โทร. 09-1050-2217 และ 08-0313-6000"<br>
 ---
 ## <a name="cafe"></a>Cafe :coffee: :cake: :tea:
 Here are the best places where you can enjoy your a cup of coffee and delicious desserts.
