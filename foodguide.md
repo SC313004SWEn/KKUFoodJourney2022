@@ -667,6 +667,18 @@ Love to impress you Instragram followers? Here are the places where you can take
 * เวลาเปิดร้าน : ทุกวันจันทร์ถึงอาทิตย์ เวลา 11:00 น. - 23:00 น.   :stopwatch:
 * เบอร์โทร : 0951850946  :telephone_receiver:
 
+#### 10. ครัวสุพรรณณิการ์ บาย คุณยาย
+
+<img src="media/ครัวสุพรรณณิการ์ บาย คุณยาย.jpg" width="500"/>
+
+*อ้างอิงข้อมูลและภาพจาก:* [Wongnai](https://www.wongnai.com/restaurants/kruasupanniga)
+
+* อาหารไทย :thailand:
+* จานหลักราคาเริ่มต้นเพียง 120 บาท  :moneybag:
+* พิกัด : ถนน โพธิสาร ตำบล พระลับ อำเภอเมืองขอนแก่น ขอนแก่น 40000 :world_map: [Google Map](https://www.google.com/maps/place/16%C2%B024'44.9%22N+102%C2%B051'34.5%22E/@16.4124636,102.8573876,17z/data=!3m1!4b1!4m5!3m4!1s0x0:0x2e798a3efeecd45a!8m2!3d16.4124636!4d102.8595763)
+* เวลาเปิดร้าน : วันจันทร์และวันพุธถึงวันอาทิตย์ เวลา 11.30 - 20.30 :stopwatch:
+* นอกจากนี้ยังสามารถสั่งซื้อได้ที่ GrabFood :calling:
+*ติดต่อ : 0634241665 :telephone_receiver:
 ---
 ## <a name="event"></a>Public Events :dancer: :dancers:
 Looking for souvenirs or buying the essestials? There are many places for you to go.  KKU is full of public events with food stalls. Some are free. Some are not. Here is the list.
