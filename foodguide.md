@@ -832,3 +832,12 @@ In a rush? Let's grab a bite to eat.
 > สถานีอิ่มเอม EIM EM Station 
 > เวลาเปิด 9.00 - 23.00 น. 
 > หลังมหาวิทยาลัยขอนแก่น
+
+#### 13. Pungpung milk cafe' - ปังปังนมสด&เครป
+
+<img src="media/Pungpung.jpg" width="500"></img>
+
+*อ้างอิงข้อมูลและภาพจาก:* [Facebook Fan Page](https://www.facebook.com/pungpungmilkcafe/)
+
+ * วาฟเฟิล เครปเย็น ปังเย็น เครื่องดื่ม
+  * เวลาเปิด : 18.15 - 23.50 น.
