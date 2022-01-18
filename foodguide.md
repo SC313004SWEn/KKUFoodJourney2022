@@ -447,6 +447,13 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 - เวลาเปิด-ปิด : 11:00 - 22:00<br>
 - 123 หมู่ 1 ตำบลศิลา อำเภอเมืองขอนแก่น ขอนแก่น 40000<br>
 
+#### 38. กูโรตีชาชักขอนแก่น
+<img src="media/กูโรตี&ชาชัก.jpg" width="500"/>
+*อ้างอิงข้อมูลและรูปภาพจาก:* https://www.facebook.com/GUROTIKHONKAEN<br>
+- ร้านของหวานขอนแก่น ต้นตำรับโรตีสูตรเด็ดส่งตรงจากแดนใต้ โรตีหวานมันสุดฟิน กับชาชักรสชาติเข้มข้น<br>
+- เวลาเปิด-ปิด : 12:00 - 22:00 น. ทุกวัน<br>
+- พิกัด : ตลาด 62 Blocs ถนนกัลปพฤกษ์ จังหวัดขอนแก่น<br>
+
 ---
 
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
