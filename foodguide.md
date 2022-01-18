@@ -573,6 +573,15 @@ Wanna eat like the locals? Try these.
 > เวลาเปิด-ปิดร้าน : ทุกวัน 10:30 - 20:30
 > เบอร์โทร : 099-315-8589
 
+#### 6. ไก่ย่างปรีชา ปลาเผา
+<img src="media/ปรีชา.jpg" width="500"/>
+*อ้างอิงข้อมูลและรูปภาพจาก:* (https://www.wongnai.com/photos/7b46e996f6ce40488187297729821a83)
+
+> เมนูแนะนำ: ไก่ย่าง ขาดได้ไง , ส้มตำไทย , คอหมูย่าง
+> เวลาเปิด-ปิดร้าน : ทุกวัน	09:00 - 16:00 
+> เบอร์โทร : 085-001-4991,089-420-9641
+
+
 ---
 ## <a name="finedin"></a>Fine Dining and Restaurants  :camera: :sunflower:
 Love to impress you Instragram followers? Here are the places where you can take stunning pictures, nice foods, and excellent services.
