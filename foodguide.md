@@ -452,7 +452,7 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 *อ้างอิงข้อมูลและรูปภาพจาก:* https://www.facebook.com/GUROTIKHONKAEN<br>
 - ร้านของหวานขอนแก่น ต้นตำรับโรตีสูตรเด็ดส่งตรงจากแดนใต้ โรตีหวานมันสุดฟิน กับชาชักรสชาติเข้มข้น<br>
 - เวลาเปิด-ปิด : 12:00 - 22:00 น. ทุกวัน<br>
-- พิกัด : ตลาด 62 Blocs ถนนกัลปพฤกษ์ จังหวัดขอนแก่น<br>
+- พิกัด : ตลาด 62 Blocs ถนนกัลปพฤกษ์ - จังหวัดขอนแก่น<br>
 
 ---
 
