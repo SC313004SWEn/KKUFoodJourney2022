@@ -453,7 +453,13 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 - ร้านของหวานขอนแก่น ต้นตำรับโรตีสูตรเด็ดส่งตรงจากแดนใต้ โรตีหวานมันสุดฟิน กับชาชักรสชาติเข้มข้น<br>
 - เวลาเปิด-ปิด : 12:00 - 22:00 น. ทุกวัน<br>
 - พิกัด : ตลาด 62 Blocs ถนนกัลปพฤกษ์ จังหวัดขอนแก่น<br>
-
+- 
+#### 39. Sweet Gallery ขอนแก่น
+<img src="media/SweetGallery.jpg" width="500"/>
+*อ้างอิงข้อมูลและรูปภาพจาก:* https://res.cloudinary.com/eddypisit/image/upload/v1569297563/ar6b1fovwcojqrf1bvw7.jpg<br>
+- คาเฟ่ขนาดใหญ่ ราคาย่อมเยา มีแอร์ มีทั้งคาวและหวาน อร่อยสุดๆ อีกทั้งยังมีหมูเกาหลีย่างข้างหน้าร้าน<br>
+- เวลาเปิด-ปิด : 11:00 - 22:00<br>
+- 190 15 หมู่ 16 ถนน กัลปพฤกษ์ ตำบลในเมือง อำเภอเมืองขอนแก่น ขอนแก่น 40000 (ข้างโอชิเน ขอนแก่น หรือตรงข้ามกับ62blocs)<br>
 ---
 
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
