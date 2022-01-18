@@ -766,6 +766,17 @@ Looking for souvenirs or buying the essestials? There are many places for you to
 * เวลาเปิด 17:00 - 22:00 น.</li>
 * พิกัด บริเวณลานจอดรถด้านศูนย์ประชุมอเนกประสงค์กาญจนาภิเษก [Google Maps](https://www.google.com/maps?q=%E0%B9%80%E0%B8%9B%E0%B8%B4%E0%B8%94%E0%B8%97%E0%B9%89%E0%B8%B2%E0%B8%A2+%E0%B8%A1%E0%B8%82.&source=lmns&bih=937&biw=1920&rlz=1C1CHBF_enTH911TH911&hl=th&sa=X&ved=2ahUKEwiZqcKE4bD1AhWyQ3wKHZ5KCyoQ_AUoAXoECAEQAQ)
 
+#### 3. ตลาด 62 บล็อก มข.
+
+<img src="media/ตลาด62บล็อก.jpg" width="500"></img>
+
+*อ้างอิงรูปภาพจาก:* [ตลาด62บล็อก ขอนแก่น](https://www.facebook.com/62Blocsmarket/)
+*ติดตามข่าวสารจากเพจหลัก:* [FB Fanpage](https://www.facebook.com/62Blocsmarket/)
+
+* กินเพลิน เดินชิลล์ อิ่มอร่อยทั้งคาวหวาน</li>
+* เวลาเปิด-ปิด : 12:00 - 22:00 น.</li>
+* พิกัด : 1062 ถนนกัลปพฤกษ์ จังหวัดขอนแก่น  [Google Maps](https://www.google.com/maps/dir/?api=1&destination=16.457351813228%2C102.82160568967&fbclid=IwAR0qzv6D8sQwzAdHR1lmGsPIuLAnenB05KCT4B8XdcQG3qcEPmpdorefmK0)
+
 ---
 ## <a name="grab"></a> Grab and Go :running: :muscle:
 In a rush? Let's grab a bite to eat.
