@@ -446,6 +446,7 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 > คาเฟ่ขนาดใหญ่ ที่มีจุดถ่ายรูปสวยๆ บรรยากาศดีมาก ต้องมาเลยยยย
 > เวลาเปิด-ปิด : 11:00 - 22:00
 > 123 หมู่ 1 ตำบลศิลา อำเภอเมืองขอนแก่น ขอนแก่น 40000
+
 ---
 
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
