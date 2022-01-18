@@ -407,7 +407,7 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 
 #### 34. 11AM cafe and space
 <img src="media/11AM.jpg" width="500"/>
-*อ้างอิงข้อมูลและรูปภาพจาก:https://www.facebook.com/11AMcafeandspace <br>
+*อ้างอิงข้อมูลและรูปภาพจาก: Facebook fanpage https://www.facebook.com/11AMcafeandspace <br>
 - ร้านเปิดทุกวัน : 11:00-19:00 น.<br>
 - พิกัด : 185/41 อำเภอเมืองขอนแก่น ขอนแก่น 40000 (ฝั่งกังสดาล) <br>
 - เบอร์โทร : 0924666282 <br>
