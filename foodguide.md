@@ -96,6 +96,19 @@ Something you can not miss when visiting KKU
 * เบอร์ติดต่อโทร 083 282 9252
 * เวลา เปิด-ปิดทุกวัน 17:00 - 21:00น.
 
+##### 9. Zab สุกี้กระทะร้อน :hotsprings: :hotsprings: :hotsprings:
+
+<img src="media/zabsuki.jpg" width="600"/>
+
+*อ้างอิงข้อมูลและภาพจาก:* [Facebook fanpage:book:](https://www.facebook.com/%E0%B9%81%E0%B8%8B%E0%B9%88%E0%B8%9A%E0%B8%94%E0%B8%B2%E0%B8%94%E0%B8%9B%E0%B8%B2%E0%B8%81-%E0%B8%AA%E0%B8%B8%E0%B8%81%E0%B8%B5%E0%B9%89%E0%B8%81%E0%B8%A3%E0%B8%B0%E0%B8%97%E0%B8%B0%E0%B8%A3%E0%B9%89%E0%B8%AD%E0%B8%99-%E0%B8%AB%E0%B8%A5%E0%B8%B1%E0%B8%87%E0%B8%A1%E0%B8%AD-%E0%B8%82%E0%B8%AD%E0%B8%99%E0%B9%81%E0%B8%81%E0%B9%88%E0%B8%99-1740028976265774/)
+
+:star::star::star:ความเห็นจากลูกค้า:star::star::star:
+  * "อร่อยมากคะน้องแมวตัวใหญ่มาก" :smiley_cat:
+  * "อร่อยมากก น้ำจิ้มดีมาก เสียอย่างเดียวได้น้อย555" :laughing::laughing::laughing:
+  * "อร่อย ถูกปาก สะอาด น่ากิน" :thumbsup:
+  * โทรศัพท์: 083 147 6868 :iphone:
+---
+
 ---
 ## <a name="cafe"></a>Cafe :coffee: :cake: :tea:
 Here are the best places where you can enjoy your a cup of coffee and delicious desserts.
