@@ -404,7 +404,13 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 - ร้านเปิดทุกวัน : 8:00-18:30 น.<br>
 - พิกัด : From Scratch Bakeshop & Café <br>
 (ในซอยแซ่บนัว ถนนมิตรภาพ ตรงข้าม ม.ข.)   
-                                               
+
+#### 34. 11AM cafe and space
+<img src="media/11AM.jpg" width="500"/>
+*อ้างอิงข้อมูลและรูปภาพจาก:https://www.facebook.com/11AMcafeandspace <br>
+- ร้านเปิดทุกวัน : 11:00-19:00 น.<br>
+- พิกัด : 185/41 อำเภอเมืองขอนแก่น ขอนแก่น 40000 (ฝั่งกังสดาล) <br>
+- เบอร์โทร : 0924666282 <br>
 ---
 
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
