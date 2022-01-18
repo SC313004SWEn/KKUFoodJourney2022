@@ -432,6 +432,15 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 > เวลาเปิด-ปิด : 08:00 - 16:00
 > 25 ถนน มิตรภาพ หน้าบ้าน ตำบลในเมือง อำเภอเมืองขอนแก่น ขอนแก่น 40000
 
+#### 36. บ้านยายคาเฟ่
+<img src="media/บ้านยายคาเฟ่.jpg" width="500"/>
+*อ้างอิงข้อมูลและรูปภาพจาก: Facebook fanpage https://www.facebook.com/%E0%B8%9A%E0%B9%89%E0%B8%B2%E0%B8%99%E0%B8%A2%E0%B8%B2%E0%B8%A2-%E0%B8%84%E0%B8%B2%E0%B9%80%E0%B8%9F%E0%B9%88-%E0%B9%80%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%87%E0%B8%9E%E0%B8%A5-228647921810153
+- ร้านเปิด 10:00 - 22:00 น.<br>
+- ครัวเปิด 11:00 - 21:30 น.<br>
+- พิกัด : 169 ตำบล โจดหนองแก อำเภอพล ขอนแก่น 40120 <br>
+- เบอร์โทร : 095 660 3318 <br>
+
+
 ---
 
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
