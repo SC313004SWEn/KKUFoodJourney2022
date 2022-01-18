@@ -107,7 +107,7 @@ Something you can not miss when visiting KKU
   * "อร่อยมากก น้ำจิ้มดีมาก เสียอย่างเดียวได้น้อย555" :laughing::laughing::laughing:
   * "อร่อย ถูกปาก สะอาด น่ากิน" :thumbsup:
   * โทรศัพท์: 083 147 6868 :iphone:
----
+
 
 ---
 ## <a name="cafe"></a>Cafe :coffee: :cake: :tea:
