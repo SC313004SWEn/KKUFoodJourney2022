@@ -424,6 +424,14 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 - ร้านเปิดทุกวัน : 11:00-19:00 น.<br>
 - พิกัด : 185/41 อำเภอเมืองขอนแก่น ขอนแก่น 40000 (ฝั่งกังสดาล) <br>
 - เบอร์โทร : 0924666282 <br>
+
+#### 35. Coffee 1970 - Jarentower
+<img src="media/1970.jpg" width="500"/>
+*อ้างอิงข้อมูลและรูปภาพจาก:* https://www.facebook.com/Coffee1970JarenTower
+> 1970 เป็นยุคที่ทำให้เกิดคำว่า Spcialty Coffee โดยกาแฟถูกทำให้เป็นสินค้าที่ดีได้อย่างมีศิลปะ
+> เวลาเปิด-ปิด : 08:00 - 16:00
+> 25 ถนน มิตรภาพ หน้าบ้าน ตำบลในเมือง อำเภอเมืองขอนแก่น ขอนแก่น 40000
+
 ---
 
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
