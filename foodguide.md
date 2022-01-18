@@ -440,7 +440,12 @@ Here are the best places where you can enjoy your a cup of coffee and delicious 
 - พิกัด : 169 ตำบล โจดหนองแก อำเภอพล ขอนแก่น 40120 <br>
 - เบอร์โทร : 095 660 3318 <br>
 
-
+#### 37. จ้วดคาเฟ่ ขอนแก่น
+<img src="media/จ้วดคาเฟ่.jpg" width="500"/>
+*อ้างอิงข้อมูลและรูปภาพจาก:* https://th.readme.me/p/32160
+> คาเฟ่ขนาดใหญ่ ที่มีจุดถ่ายรูปสวยๆ บรรยากาศดีมาก ต้องมาเลยยยย
+> เวลาเปิด-ปิด : 11:00 - 22:00
+> 123 หมู่ 1 ตำบลศิลา อำเภอเมืองขอนแก่น ขอนแก่น 40000
 ---
 
 ## <a name="street"></a>Street Foods :moneybag: :innocent:
