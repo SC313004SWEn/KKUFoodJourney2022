@@ -771,9 +771,6 @@ Love to impress you Instragram followers? Here are the places where you can take
 * เวลาเปิดร้าน : วันจันทร์และวันพุธถึงวันอาทิตย์ เวลา 11.30 - 20.30 :stopwatch:
 * นอกจากนี้ยังสามารถสั่งซื้อได้ที่ GrabFood :calling:
 *ติดต่อ : 0634241665 :telephone_receiver:
----
-## <a name="event"></a>Public Events :dancer: :dancers:
-Looking for souvenirs or buying the essestials? There are many places for you to go.  KKU is full of public events with food stalls. Some are free. Some are not. Here is the list.
 
 #### 11. เฮียเปียวต้นตาล 
 
