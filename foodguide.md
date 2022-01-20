@@ -777,7 +777,7 @@ Looking for souvenirs or buying the essestials? There are many places for you to
 
 #### 11. เฮียเปียวต้นตาล 
 
-<img src="hipyo" width="500"/>
+<img src="media/hipyo.jpg" width="500"/>
 
 *อ้างอิงข้อมูลและภาพจาก:* [Wongnai](https://web.facebook.com/hearpeawtontan/photos/pcb.428002865560545/428002782227220/)
 
