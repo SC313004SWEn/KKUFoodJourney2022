@@ -775,6 +775,31 @@ Love to impress you Instragram followers? Here are the places where you can take
 ## <a name="event"></a>Public Events :dancer: :dancers:
 Looking for souvenirs or buying the essestials? There are many places for you to go.  KKU is full of public events with food stalls. Some are free. Some are not. Here is the list.
 
+#### 11. เฮียเปียวต้นตาล 
+
+<img src="เฮียเปียว ต้นตาล 209 แต่น่าจะปรับแล้ว" width="500"/>
+
+*อ้างอิงข้อมูลและภาพจาก:* [Wongnai](https://web.facebook.com/hearpeawtontan/photos/pcb.428002865560545/428002782227220/)
+
+
+* ราคาเริ่มต้นเพียง 209 บาท  :moneybag:
+* ร้านหมูกะทะที่อยู่คู้เมืองขอนแก่นมาอย่างยาวนาน โดยมีหลายสาขาให้เลือกแต่วันนี้เราได้เลือกสาขาต้นตาลมาแนะนำโดยจะเป็นบุฟเฟ่ต์ มีทั้งกุ้ง หมู ปลาหมึก ราคาเริ่มต้น 209:
+
+* พิกัด : CR99+32V ตำบลในเมือง อำเภอเมืองขอนแก่น ขอนแก่น 40000 ตลาดต้นตาล :world_map: [Google Map](https://www.google.com/maps/place/เฮียเปียวหมูเกาหลี+ตลาดต้นตาล/@16.4177349,102.8175587,15z/data=!4m5!3m4!1s0x0:0x9754d16b0d6ed050!8m2!3d16.4177349!4d102.8175587)
+* โทรศัพท์: 088 614 5454:
+* เวลาทำการ: 
+* วันศุกร์	16:00–23:00 :
+* วันเสาร์	16:00–23:00 :
+* วันอาทิตย์	16:00–23:00 :
+* วันจันทร์	16:00–23:00 :
+* วันอังคาร	16:00–23:00 :
+* วันพุธ	16:00–23:00 :
+* วันพฤหัสบดี	16:00–23:00:
+
+---
+## <a name="event"></a>Public Events :dancer: :dancers:
+Looking for souvenirs or buying the essestials? There are many places for you to go.  KKU is full of public events with food stalls. Some are free. Some are not. Here is the list.
+
 #### 1. มอดินแดง Avenue
 
 <img src="media/avenue.jpg" width="500"></img>
